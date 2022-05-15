@@ -1137,17 +1137,55 @@ MISC
 12 - $20 - Amber - The Hits Remixed (3x12)
 CD - $10 - R&B KUTS VOL 1
 
+PROMO ONLY CANADA RHYTHM RADIO
+----------------------------------------------------------------------------------
+CD - $5 - Feb 2003
+CD - $5 - Apr 2004
+CD - $5 - May 2004
+CD - $5 - Oct 2004
+CD - $5 - Nov 2004
+CD - $5 - Dec 2004
+CD - $5 - Feb 2005
 
-PROMO ONLY CANADA
+PROMO ONLY CANADA X-SERIES
 ----------------------------------------------------------------------------------
 CD - $10 - X-SERIES VOL 1
 CD - $10 - X-SERIES VOL 2
 CD - $10 - X-SERIES VOL 3
 
-Mainstream Club Canada starting in 1999 to 2020 and a few from the 90s.
-$5 / CD.
-
-
-ERG CANADA
+PROMO ONLY CANADA Mainstream Club Canada CD - $5 ea (or make an offer on the whole set) (273 CDS)
 ----------------------------------------------------------------------------------
-ERG Dance - Starting from 1994 up until 2018 only missing a few issues before they were sold.  $5 / CD.
+1992 - Jun / Jul / Aug / Sep
+1993 - Jan / Feb / Apr / Jun / Jul / Oct
+1997 - Nov / Dec
+1998 - Jan / Feb / Mar / Apr Aug / Oct
+1999 - Jan / Feb / Apr / Jul - Dec
+2000 - Jan to Dec (12)
+2001 - Jan to Dec (12)
+2002 - Jan to Dec (12)
+2003 - Jan to Dec (12)
+2004 - Jan to Dec (12)
+2005 - Jan to Dec (12)
+2006 - Jan to Dec (12)
+2007 - Jan to Dec (12)
+2008 - Jan to Dec (12)
+2009 - Jan to Dec (12)
+2010 - Jan to Dec (12)
+2011 - Jan to Dec (12)
+2012 - Jan to Dec (12)
+2013 - Jan to Dec (12)
+2014 - Jan to Dec (12)
+2015 - Jan to Dec (12)
+2016 - Jan to Dec (12)
+2017 - Jan to Dec (12)
+2018 - Jan to Dec (12)
+2019 - Jan to Dec (12)
+2020 - Jan to June (6)
+
+ERG DANCE CANADA - $5 ea or make an offer on the whole set. (244 CDS)
+----------------------------------------------------------------------------------
+Starting in 1994 Issue 1 and ending at Issue 254, with about a dozen or so missing after issue 218.
+
+DMC Dance Extra Mixes - CD $5 ea
+----------------------------------------------------------------------------------
+Vol 1 - 73, 96, 98, 99
