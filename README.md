@@ -11,7 +11,11 @@ All prices are in US$ to keep it simple. 
 You can pay in either US$ or CDN$ -- paypal for US customers, and if you are in Canada you can either do Paypal OR Interac E-Transfer.
 
 Obviously if you purchase more we can work something out.  I am in Canada and would prefer to ship out only to Canada 
-and US for now.  As most of you are aware shipping is not cheap, so I'll do my best to get the best rate available.
+and US for now.  As most of you are aware shipping is not cheap these days, so I'll do my best to get the best rate available.
+
+*** SHIPPING UPDATES ***
+------------------------
+Canada Post - $12-$30 for non tracked depending on weight (non-insured).  With tracking - add $6. Insurance can vary will have to get a quote.
 
 A note on the condition of these, let's be honest, I was a DJ and have used these -- some more than others, some appear
 to be brand new and maybe only used a few times.  Others have been used, if I notice one that has been used and has
@@ -378,8 +382,8 @@ CD - $10 - Issue 232
 
 FUNKYMIX
 ----------------------------------------------------------------------------------
-CD - $50 - Best of Funkymix 1 (2xCD)
-CD - $50 - Best of Funkymix 2 (2xCD)
+SOLD - CD - $50 - Best of Funkymix 1 (2xCD)
+SOLD - CD - $50 - Best of Funkymix 2 (2xCD)
 CD - $50 - Best of Funkymix 3 (2xCD)
 
 
@@ -589,14 +593,12 @@ CD - $15 - VOLUME 2
 X-MIX CLUB CLASSICS
 ----------------------------------------------------------------------------------
 CD - $50 - DIGGIN IN THE CRATES (2xCD)
-CD - $40 - Best of Vol 1 (2xCD)
-CD - $40 - Best of Vol 2 (2xCD)
-CD - $40 - VOLUME 2
-CD - $40 - VOLUME 3
-CD - $30 - VOLUME 10
+SOLD - CD - $40 - Best of Vol 1 (2xCD)
+SOLD - CD - $40 - Best of Vol 2 (2xCD)
+SOLD - CD - $40 - VOLUME 2
+SOLD - CD - $40 - VOLUME 3
+SOLD - CD - $30 - VOLUME 10
 CD - $20 - VOLUME 15
-
-
 
 
 
