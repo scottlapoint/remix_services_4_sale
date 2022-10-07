@@ -25,14 +25,14 @@ I will update the list as items get sold.
 
 Thanks for looking!
 
-PRIME CUTS
+PRIME CUTS ($80 for the lot)
 ----------------------------------------------------------------------------------
 CD - $50 - Prime Cuts - The Best of Vol 1 
 CD - $50 - Prime Cuts - The Best of Vol 2
 CD - $50 - Prime Cuts - The Best Of Volume 3 (Producer's Choice) 
 
 
-POWERHOUSE
+POWERHOUSE ($180 for the lot)
 ----------------------------------------------------------------------------------
 CD - $35 - Resurrection - 7-8-9
 CD - $40 - Powerhouse Best of 1991
@@ -49,7 +49,7 @@ CD - $25 - Powerhouse 21 
 12 - $15 - Powerhouse Issue 8 (2x12")
 
 
-DISCOTECH
+DISCOTECH ($300 for the lot)
 ----------------------------------------------------------------------------------
 CD - $35 - Issue Three
 CD - $40 - Issue Ten
@@ -117,7 +117,7 @@ PENDING - 12 - $15 - Issue 12
 PENDING - CD - $25 - Volume 13
 
 
-REMIX CENTRAL
+REMIX CENTRAL ($40 for the lot)
 ----------------------------------------------------------------------------------
 CD - $20 - REMIX! Club Series 1 (2xCD)
 CD - $15 - REMIX! Import NRG Issue 5
@@ -126,7 +126,7 @@ CD - $15 - REMIX! Import NRG Issue 7
 
 
 
-9 INCH REMIX
+9 INCH REMIX ($50 for the lot)
 ----------------------------------------------------------------------------------
 CD - $20 -- Issue 3 (2xCD)
 CD - $20 -- Issue 4 (2xCD)
@@ -145,7 +145,7 @@ CD - $10 - Commercial Collection 297 (2xCD)
 
 
 
-ULTIMIX LOOKING BACK
+ULTIMIX LOOKING BACK ($75 for the lot)
 ----------------------------------------------------------------------------------
 CD - $40 - Issue 4
 CD - $40 - Issue 8
@@ -154,13 +154,12 @@ CD - $40 - Issue 14
 
 
 
-ULTIMIX BACK SPINS
+ULTIMIX BACK SPINS ($50 for the lot)
 ----------------------------------------------------------------------------------
 CD - $20 - Issue 1
 CD - $20 - Issue 2
 CD - $20 - Issue 3
 CD - $20 - Issue 4
-
 
 
 
@@ -174,7 +173,7 @@ CD - $50 - Select 
 
 
 
-ULTIMIX
+ULTIMIX ($1500 for the lot)
 ----------------------------------------------------------------------------------
 CD - $200 - In The Beginning (4xCD)
 CD - $40 - Best of Ultimix 3 (2xCD)
@@ -361,9 +360,7 @@ CD - $10 - Issue 231
 CD - $10 - Issue 232
 
 
-
-
-FUNKYMIX
+FUNKYMIX ($750 for the lot)
 ----------------------------------------------------------------------------------
 CD - $50 - Best of Funkymix 3 (2xCD)
 
@@ -503,7 +500,7 @@ CD - $10 - Issue 202
 
 
 
-RHYTHM STICK
+RHYTHM STICK ($150 for the lot)
 ----------------------------------------------------------------------------------
 CD - $30 - Best of Rhythm Stick CD 02
 CD - $30 - Best of Rhythm Stick CD 03
@@ -514,14 +511,12 @@ CD - $40 - Best of Rhythm Stick CD 06
 12 - $5  - Issue 2-3 (Side A/B ONLY)
 
 
-
-
 ART OF MIX
 ----------------------------------------------------------------------------------
 CD - $20 -  Ultra Hot Art Susan's Compilation - Madonna
 
 
-DIRECT HIT
+DIRECT HIT ($50 for the lot)
 ----------------------------------------------------------------------------------
 CD - $15 - Issue 1
 CD - $15 - Issue 2
@@ -536,48 +531,26 @@ CLUB TRAX
 
 
 
-
 X-MIX INTHEMIX
 ----------------------------------------------------------------------------------
 12 - $5 - ISSUE 6
 
 
 
-
-
-
-X-MIX LATIN X-PRESS
+X-MIX LATIN X-PRESS ($20 for the lot)
 ----------------------------------------------------------------------------------
 CD - $15 - VOLUME 1
 CD - $15 - VOLUME 2
 
 
-
-
 X-MIX CLUB CLASSICS
 ----------------------------------------------------------------------------------
 CD - $50 - DIGGIN IN THE CRATES (2xCD)
-SOLD - CD - $40 - Best of Vol 1 (2xCD)
-SOLD - CD - $40 - Best of Vol 2 (2xCD)
-SOLD - CD - $40 - VOLUME 2
-SOLD - CD - $40 - VOLUME 3
-SOLD - CD - $30 - VOLUME 10
-CD - $20 - VOLUME 15
-
-
+CD - $10 - VOLUME 15
 
 
 X-MIX URBAN
 ----------------------------------------------------------------------------------
-CD - $15 - URBAN MOST WANTED 1
-CD - $15 - URBAN MOST WANTED 2
-CD - $15 - URBAN MOST WANTED 3
-CD - $15 - URBAN MOST WANTED 4
-CD - $15 - URBAN MOST WANTED 5
-
-
-
-
 12 - $5 - URBAN ISSUE 12
 12 - $5 - URBAN ISSUE 19
 12 - $5 - URBAN ISSUE 39
@@ -591,7 +564,7 @@ CD - $15 - URBAN MOST WANTED 5
 CD - $10 - URBAN ISSUE 130
 
 
-X-MIX PROJECT "X"
+X-MIX PROJECT "X" ($100 for the lot)
 ----------------------------------------------------------------------------------
 CD - $20 - Project X
 CD - $40 - Planet X 1992-1995 (2xCD)
@@ -608,13 +581,13 @@ CD - $15 - Issue 2001
 
 
 
-X-MIX HOUSE ANTHEMS
+X-MIX HOUSE ANTHEMS ($20 for the lot)
 ----------------------------------------------------------------------------------
 CD - $15 - Volume 2
 CD - $15 - Volume 3
 
 
-X-MIX ABDUCTED
+X-MIX ABDUCTED ($60 for the lot)
 ----------------------------------------------------------------------------------
 CD - $15 - Issue 2
 CD - $15 - Issue 6
@@ -628,7 +601,7 @@ X-Mix Radioactive
 ----------------------------------------------------------------------------------
 CD - $5 - Rhythm Crossover Series February 2000
 
-X-MIX (DANCE SERIES)
+X-MIX (DANCE SERIES) ($1250 for the lot)
 ----------------------------------------------------------------------------------
 12 - $10 - Issue 4
 12 - $10 - Issue 5
@@ -813,8 +786,11 @@ CD - $10 - Issue 202
 	
 
 
-PRO MIX STREET
+PRO MIX STREET ($50 for the lot)
 ----------------------------------------------------------------------------------
+CD - $10 - Issue 1
+CD - $10 - Issue 2
+CD - $10 - Issue 3
 CD - $10 - Issue 4
 CD - $10 - Issue 6
 CD - $10 - Issue 7
@@ -822,20 +798,7 @@ CD - $10 - Issue 9
 CD - $10 - Issue 12
 
 
-
-
-PRO MIX STREET
-----------------------------------------------------------------------------------
-CD - $10 - Issue 1
-CD - $10 - Issue 2
-CD - $10 - Issue 3
-CD - $10 - Issue 4
-CD - $10 - Issue 12
-
-
-
-
-PRO MIX DANCE
+PRO MIX DANCE ($60 for the lot)
 ----------------------------------------------------------------------------------
 CD - $10 - Issue 1
 CD - $10 - Issue 2
@@ -850,7 +813,7 @@ CD - $10 - Issue 9
 
 
 
-EURO TRACKS
+EURO TRACKS ($40 for the lot)
 ----------------------------------------------------------------------------------
 CD - $10 - Issue 1
 CD - $10 - Issue 9
@@ -862,47 +825,40 @@ CD - $10 - Issue 6
 
 
 
-ROADKILL
+ROADKILL ($10 for both)
 ----------------------------------------------------------------------------------
 CD - $10 - Issue 1.10
 CD - $10 - Issue 2.15
 
 
-SELECT MIX
+SELECT MIX ($75 for the lot)
 ----------------------------------------------------------------------------------
-CD - $10 - Essentials 1
-CD - $10 - Essentials 3
-CD - $10 - Essentials 9
-CD - $10 - Essentials 12
-CD - $10 - Essentials 15
-CD - $10 - Essentials 19
-CD - $10 - Essentials 27
-CD - $10 - Essentials 29
-CD - $10 - Essentials 32
-CD - $10 - Essentials 38
-CD - $10 - Essentials 39
+CD - $5 - Essentials 1
+CD - $5 - Essentials 3
+CD - $5 - Essentials 9
+CD - $5 - Essentials 12
+CD - $5 - Essentials 15
+CD - $5 - Essentials 19
+CD - $5 - Essentials 27
+CD - $5 - Essentials 29
+CD - $5 - Essentials 32
+CD - $5 - Essentials 38
+CD - $5 - Essentials 39
+
+CD - $5 - Old School 3
+CD - $5 - Old School 7
+CD - $5 - Rewind 1
+CD - $5 - Rewind 3
 
 
-CD - $10 - Old School 3
-CD - $10 - Old School 7
-CD - $10 - Rewind 1
-CD - $10 - Rewind 3
-
-
-
-
-
-
-
-
-STREET TRACKS
+STREET TRACKS ($40 for the lot)
 ----------------------------------------------------------------------------------
 CD - $10 - Issue 32
 CD - $25 - Best of Volume 1
 CD - $25 - Best of Volume 2
 
 
-HOT TRACKS & HOT TRACKS MAINSTREAM DANCE
+HOT TRACKS & HOT TRACKS MAINSTREAM DANCE ($200 for the lot)
 ----------------------------------------------------------------------------------
 CD - $10 - Issue 13-5
 CD - $10 - Issue 13-9
@@ -930,15 +886,12 @@ CD - $10 - Issue 22-2
 CD - $10 - Issue 23-2
 CD - $20 - Issue 28-2 Special 200th Issue (Select Mix Hot Tracks)
 
-
-
-
 HOT TRACKS XL
 ----------------------------------------------------------------------------------
 CD - $10 - Issue 4
 
 
-REMIXED RECORDS
+REMIXED RECORDS ($175 for the lot)
 ----------------------------------------------------------------------------------
 CD - $60 - Issue 58
 CD - $50 - Issue 62
@@ -957,11 +910,10 @@ OZZMIX
 	
 MISC
 ----------------------------------------------------------------------------------
-12 - $60 - Whitney - The Unreleased Mixes (4x12)
 12 - $20 - Amber - The Hits Remixed (3x12)
 CD - $10 - R&B KUTS VOL 1
 
-PROMO ONLY CANADA RHYTHM RADIO
+PROMO ONLY CANADA RHYTHM RADIO ($25 for the set)
 ----------------------------------------------------------------------------------
 CD - $5 - Feb 2003
 CD - $5 - Apr 2004
@@ -971,13 +923,13 @@ CD - $5 - Nov 2004
 CD - $5 - Dec 2004
 CD - $5 - Feb 2005
 
-PROMO ONLY CANADA X-SERIES
+PROMO ONLY CANADA X-SERIES ($25 for the set)
 ----------------------------------------------------------------------------------
 CD - $10 - X-SERIES VOL 1
 CD - $10 - X-SERIES VOL 2
 CD - $10 - X-SERIES VOL 3
 
-PROMO ONLY CANADA Mainstream Club Canada CD - $5 ea (or make an offer on the whole set) (273 CDS)
+PROMO ONLY CANADA Mainstream Club Canada CD - $5 ea (or $1000 for the whole set) (273 CDS) 
 ----------------------------------------------------------------------------------
 1992 - Jun / Jul / Aug / Sep
 1993 - Jan / Feb / Apr / Jun / Jul / Oct
@@ -1010,6 +962,14 @@ ERG DANCE CANADA - $5 ea or make an offer on the whole set. (244 CDS)
 ----------------------------------------------------------------------------------
 Starting in 1994 Issue 1 and ending at Issue 254, with about a dozen or so missing after issue 218.
 
-DMC Dance Extra Mixes - CD $5 ea
+DMC Dance Extra Mixes - CD $5 ea ($300 for the lot)
 ----------------------------------------------------------------------------------
 Vol 1 - 73, 96, 98, 99
+
+NUMUZIK DJ LINE (1-27) ($150 for the lot)
+----------------------------------------------------------------------------------
+VOL 1-27 -- $7.55 ea.
+
+A STATE OF TRANCE CLASSICS ($300 for the lot)
+----------------------------------------------------------------------------------
+A STATE OF TRANCE CLASSICS VOL 1-15 (UNMIXED) - $25 ea
