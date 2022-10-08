@@ -513,7 +513,7 @@ CD - $40 - Best of Rhythm Stick CD 06
 
 ART OF MIX
 ----------------------------------------------------------------------------------
-CD - $20 -  Ultra Hot Art Susan's Compilation - Madonna
+CD - $20 -  Ultra Hot Art Susan's Compilation - Madonna Remixes
 
 
 DIRECT HIT ($50 for the lot)
@@ -597,9 +597,6 @@ CD - $15 - Issue 9
 CD - $15 - Issue 10
 CD - $15 - Issue 11
 
-X-Mix Radioactive
-----------------------------------------------------------------------------------
-CD - $5 - Rhythm Crossover Series February 2000
 
 X-MIX (DANCE SERIES) ($1250 for the lot)
 ----------------------------------------------------------------------------------
