@@ -154,7 +154,7 @@ CD - $40 - Issue 14
 
 
 
-ULTIMIX BACK SPINS ($50 for the lot)
+ULTIMIX BACK SPINS ($40 for the lot)
 ----------------------------------------------------------------------------------
 CD - $20 - Issue 1
 CD - $20 - Issue 2
@@ -564,7 +564,7 @@ X-MIX URBAN
 CD - $10 - URBAN ISSUE 130
 
 
-X-MIX PROJECT "X" ($100 for the lot)
+X-MIX PROJECT "X" ($150 for the lot)
 ----------------------------------------------------------------------------------
 CD - $20 - Project X
 CD - $40 - Planet X 1992-1995 (2xCD)
@@ -795,7 +795,7 @@ CD - $10 - Issue 9
 CD - $10 - Issue 12
 
 
-PRO MIX DANCE ($60 for the lot)
+PRO MIX DANCE ($75 for the lot)
 ----------------------------------------------------------------------------------
 CD - $10 - Issue 1
 CD - $10 - Issue 2
@@ -808,27 +808,13 @@ CD - $10 - Issue 8
 CD - $10 - Issue 9
 
 
-
-
-EURO TRACKS ($40 for the lot)
-----------------------------------------------------------------------------------
-CD - $10 - Issue 1
-CD - $10 - Issue 9
-CD - $10 - Issue 8
-CD - $10 - Issue 10
-CD - $10 - Issue 5
-CD - $10 - Issue 6
-
-
-
-
 ROADKILL ($10 for both)
 ----------------------------------------------------------------------------------
 CD - $10 - Issue 1.10
 CD - $10 - Issue 2.15
 
 
-SELECT MIX ($75 for the lot)
+SELECT MIX ($60 for the lot)
 ----------------------------------------------------------------------------------
 CD - $5 - Essentials 1
 CD - $5 - Essentials 3
@@ -888,7 +874,7 @@ HOT TRACKS XL
 CD - $10 - Issue 4
 
 
-REMIXED RECORDS ($175 for the lot)
+REMIXED RECORDS ($150 for the lot)
 ----------------------------------------------------------------------------------
 CD - $60 - Issue 58
 CD - $50 - Issue 62
@@ -926,7 +912,7 @@ CD - $10 - X-SERIES VOL 1
 CD - $10 - X-SERIES VOL 2
 CD - $10 - X-SERIES VOL 3
 
-PROMO ONLY CANADA Mainstream Club Canada CD - $5 ea (or $1000 for the whole set) (273 CDS) 
+PROMO ONLY CANADA Mainstream Club Canada CD - $5 ea (or $1200 for the whole set) (273 CDS) 
 ----------------------------------------------------------------------------------
 1992 - Jun / Jul / Aug / Sep
 1993 - Jan / Feb / Apr / Jun / Jul / Oct
@@ -955,18 +941,19 @@ PROMO ONLY CANADA Mainstream Club Canada CD - $5 ea (or $1000 for the whole set)
 2019 - Jan to Dec (12)
 2020 - Jan to June (6)
 
-ERG DANCE CANADA - $5 ea or make an offer on the whole set. (244 CDS)
+ERG DANCE CANADA - ($1000 FOR THE SET)
 ----------------------------------------------------------------------------------
 Starting in 1994 Issue 1 and ending at Issue 254, with about a dozen or so missing after issue 218.
 
-DMC Dance Extra Mixes - CD $5 ea ($300 for the lot)
+DMC Dance Extra Mixes - CD $5 ea ($275 for the lot)
 ----------------------------------------------------------------------------------
 Vol 1 - 73, 96, 98, 99
 
-NUMUZIK DJ LINE (1-27) ($150 for the lot)
+NUMUZIK DJ LINE (1-27) ($200 for the lot)
 ----------------------------------------------------------------------------------
-VOL 1-27 -- $7.55 ea.
+VOL 1-27 -- $10 ea.
 
 A STATE OF TRANCE CLASSICS ($300 for the lot)
 ----------------------------------------------------------------------------------
 A STATE OF TRANCE CLASSICS VOL 1-15 (UNMIXED) - $25 ea
+
