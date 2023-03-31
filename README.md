@@ -78,7 +78,6 @@ CD - $15 - Issue ThirtyNine
 CD - $20 - Issue Forty
 CD - $20 - Issue FortyOne
 CD - $20 - Issue FortyTwo
-CD - $20 - DDR 43
 CD - $20 - DDR 44
 CD - $40 - DDR 45
 CD - $40 - DDR 46
@@ -545,7 +544,6 @@ CD - $15 - VOLUME 2
 
 X-MIX CLUB CLASSICS
 ----------------------------------------------------------------------------------
-CD - $50 - DIGGIN IN THE CRATES (2xCD)
 CD - $10 - VOLUME 15
 
 
