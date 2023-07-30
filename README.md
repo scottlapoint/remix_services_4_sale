@@ -27,9 +27,9 @@ Thanks for looking!
 
 PRIME CUTS ($80 for the lot)
 ----------------------------------------------------------------------------------
-CD - $50 - Prime Cuts - The Best of Vol 1 
-CD - $50 - Prime Cuts - The Best of Vol 2
-CD - $50 - Prime Cuts - The Best Of Volume 3 (Producer's Choice) 
+CD - $50 - Prime Cuts - The Best of Vol 1 \
+CD - $50 - Prime Cuts - The Best of Vol 2 \
+CD - $50 - Prime Cuts - The Best Of Volume 3 (Producer's Choice) \
 
 
 POWERHOUSE ($180 for the lot)
