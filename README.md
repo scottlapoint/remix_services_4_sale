@@ -944,3 +944,413 @@ A STATE OF TRANCE CLASSICS ($300 for the lot)
 ----------------------------------------------------------------------------------
 A STATE OF TRANCE CLASSICS VOL 1-15 (UNMIXED) - $25 ea\
 
+
+MISC 12" FOR SAlE
+-----------------------------------------------------------------------------------
+12" SINGLES FOR SALE
+--------------------------------------------------------------------------------
+$8 -  Nalin & Kane vs Denis The Menace - Beachball 2003  (2x12")\
+$5  - $prezioso ft Marvin - Rock Da Discotech\
+$5 - Abbacadabra - Dancing Queen (Re-mix)\
+$5 - Abbacadabra - The Winner Takes It All\
+$5 - Abbacadabra - Knowing Me Knowing You\
+$5 - Abbacadabra - The Visitors / One Of Us\
+$5 - Masterboy - Feel The Heat Of The Night 2003\
+$5 - JJ Brothers - Move It Up\
+$5 - Frame - Man In The moon\
+$5 - K Da Cruz - New High Energy\
+$5 - Bass Bumpers - Running\
+$5 - 49ers - Touch me\
+$5 - Angelica - The Sunshine After The Rain\
+$5  - Crazy Ivan - Mozart's Revenge\
+$5 - Yea - Feel The Beat Of Love\
+$5 - Basic Element - The Fiddle\
+$5 - Corina - Temptation\
+$5 - Rosko - Love Is A Drug\
+$5 - Perfect State - Into A Different\
+$5 - Bruce Foxton - This Is The Way\
+$5 - Colette - What Will She Do For love\
+$5 - Seraphim Suite - Over\
+$5 - Tina - Hey Mr. DJ\
+$5 - Meccaheadz - Night Stool\
+$5 - Ben Liebrand - Move To The Big Band\
+$5 - B.A.S.P. - Boom Boom My Heart\
+$5 - Cevin Fisher - Love You Some more\
+$5 - Darren Styles & Mark Breeze Present nFextious - Let Me Fly\
+$5 - Culture Beat - Mr. Vain Recall (2003)\
+$5 - Barcode Brothers - Dooh Dooh\
+$5 - Axel F - The Winner Takes It All\
+$5 - Captain Jack - Captain Jack\
+$8 - Robin S - Show Me Love 2002 (Tonka Remixes) (2x12)\
+$5 - X-Plane ft Angel - Let Me Go\
+$5 - Juke Box Heroes - I Love Rock And Roll\
+$5 - Simply Bass Promo Sam Mollison - Will You Love Me In The Morning / 49ers. - The Message / Come Rain Or Shine / Kitty Katt - Rock Me\
+$5 - US - Vertigo (Remix)\
+$5 - David Morales Presents The Face - Needing You\
+$8 - Culture Beat - Insanity (2x12)\
+$8 - Rauhofer Live @ Roxy - Madonna - Mother & Father / Spectrum - Kinda New / Robbie Rivers - Master Of Drums / DJ Rooster & Sammy Peralta - Move Your Body\
+$5 - U96 - Love Sees No Colour(Bass Bumpers Remix)\
+$5 - Fresh System - Down Under\
+$5 - Celine Dion - The Unison Mixes\
+$5 - Steve Angelo vs Metallica / Crystal Waters - Metallica Is Dancing / Gypsy Woman (Bootleg Mix)\
+$5 - The Soundlovers - Abracadabra\
+$5 - Floorfilla - Italodancer\
+$5 - Floorfilla - Italodancer\
+$5 - Energy 52 - Cafe Del Mar 2002 Remix\
+$5 - Sunloverz - Shine On\
+$5 - Bob Sinclar & Cutee B - Sound Of Freedom\
+$5 - Marco Solo - Pump It\
+$5 - Dirty Old Ann - Turn me On\
+$5 - Kelis ft Too Short - Bossy (Remixes)\
+$5 - David Morales Presents The Face - Needing U II / Melo G - G Spot\
+$5 - DJ BoBo - Freedom\
+$5 - Moloko - Sing It Back (Mousse T Remix)\
+$5 - Kid Vicious - Into The Groove\
+$5 - Xeya - KISS Me\
+$5 - Da Cool - Wanna Get Funky\
+$5 - Ex-Melody - Love Destiny\
+$5 - One 2 Many - Downtown\
+$5 - 2 Eivissa - I Wanna Be Your Toy\
+$5 - Took - Without Your Love\
+$5 - Groovision - You Gotta Jump\
+$5 - 3 O-Matic - All I Want Is you\
+$5 - Alisha - Bounce Back\
+$5 - Tracie Spencer - This House\
+$5 - La Bouche - Call Me\
+$5 - Azzido Da Bass - Dooms Night\
+$5 - Chad Jackson - Hear The Drummer (Get Wicked)\
+$5 - YUG - You Don't Really Love Me\
+$5 - AB Logic - AB Logic\
+$5 - Jam Tronik - I'd Do Anything For Love (But I Won't Do That)\
+$5-  Aurora - The Day It Rained Forever\
+$5 -Jan Wayne - More Than A Feeling\ 
+$5 - New System - Let Me Take\
+$5 - Studio B - I See Girls\
+$5 - Future Beat - X-Tasy\
+$5 - E.X.P. - Before The Night\
+$5 - Cherry Moon - Everybody Get Down\
+$5 - MEJA - All About The Money\
+$5 - Hot97 Hits 2 -- Hit Em High / What Kind Of Man Would I Be / Tell Me / One In A Million / Let Me Clear My Throat / No Diggity / Tootsie Roll\
+$5 - 2 Eivissa - Viva La Fiesta / I Wanna Be Your Toy / Technotronic - Monday Midnite\
+$5 - DA Cool - Mama Sweet\
+$5 - Jo Jo - Counting On Your Love\
+$5 - Patty - Ray Of Light\
+$5 - Alexia - Gimme Love\
+$5 - Double X Voice - Everybody Get Up\
+$5 -  Double You - Part Time Lover / Netzwerk - Breakdown / The Down\
+$5 - Yo:Co Ross - Miss Me\
+$5 - KIKKA - Sweet Dreams\
+$5 - Volto ft Pitbull - Bumper Remix\
+$5 - Ace Of Base - Hallo Hallo (XTM Remixes)\
+$5 - Plummet - Cherish The Day\
+$5 - Black Rock - Blue Water\
+$5 - Sonia - Counting Every Minute\
+$5 - Tinman - Gudvibe\
+$5 - Dion - Maybe / Emjay - Let it Go\
+$5 - 2 In A Room - Wiggle It\
+$5 - DHAMA - Keep On Movin\
+$5 - ISA B - Good For You\
+$5 - JK - You & I Remix 95\
+$5 - Tara Kemp - Piece Of My Heart\
+$5 - Yankees - I Can Feel It\
+$5 - BG The Prince Of Rap - Take Me Through The Night\
+$5 - Swayy - On & On\
+$5 - Bassline Boys - We Will Rock You\
+$5 - House Of Pain - Jump Around (House Remixes)\
+$5 - 4-2 The Floor - Future Love\
+$5 - Reggy O - Let The Music Play\
+$5 - Love Message - Love Message\
+$5 - S.I.F.T.Y.P. - Fade2Grey 2004 (Bootleg)\
+$5 - Thomas Falcon Presents Valerie\
+$5 - Boston - One In A Million / Believe\
+$5 - Kaci - Paradise \
+$5 - Candy Fup - Strawberry Fields Forever\
+$5 - Sylver - Forever In Love\
+$5 - Kim Sanders - Show Me\
+$5 - Depeche Mode - Enjoy The Silence\
+$5 - Rednex - The Way I Mate / Spirit Of The Hawk\
+$5 - Matt Bianco - Yeh Yeh / Smooth\
+$5 - Paffendorf - Where Are You\
+$5 - Beatboh - Right Here Right Now\
+$5 - Matt Darey & Marcella Woods - U Shine On\
+$5 - Macca ft Mel Sweet - I'd Rather Be Alone\
+$5 - Bordeux - Thumbs Up\
+$5 - Starzoom - Billie Jean\
+$5 - Cascada - What Hurts The Mos\
+$5 - Eric Prydz ft Adeva - In & Out\
+$5 - Stream Rocker Meets Alexan-Der P - Give It Up For Love\
+$5 - Erika - Relations / JK - You Make Me Feel\
+$5 - Distant Soundz - Runaway\
+$5 - The Crazy Drummer - Rollercoaster\
+$5 - ATB - 9PM (Til I Come)\
+$5 - Gloria Estefan - No Me Dejes De Querer\
+$5 - Deux - Sun Rising Up\
+$5 - Deux -  Sun Rising Up Remix\
+$5 - Louis Botella ft Olav Basoski - Let's Be Free\
+$5 - Rachael Starr - Crush\
+$5 - Ex-It - Night Fever\
+$5 - Jon Secede - Just Another Day\
+$5 - DSK - Work My Body\
+$5 - Jefferson Project - You Got Me\
+$5 - Brio From Rio - Just For Me\
+$5 - Kooki - Imagination\
+$5 - Blue Rose - Minutes / James Korner - When You Got It\
+$5 - Cabballero - Hymn\
+$5 - Disco Walker - Shining Song\
+$5 - Chilli Hi Fly - It's Alright\
+$5 - Deborah Cox - Absolutely not\
+$5 - Milk Inc - Walk On Water\
+$8 - Milk Inc - Time / Breathe Without You (2x12)\
+$5 - Nasty Joe - Archie\
+$5 - FUN FUN - I'm needin You\
+$5 - Cathy Dennis - Touch Me\
+$5 - D Mob ft Cathy Dennis - Cmon & Get My love\
+$5 - Inner City - Big Fun 2006 (Bootleg)\
+$5 - Inner City - Big Fun 2003 \
+$5 - The Boogie Pimps - Salt Shaker\
+$5 - ATB - Summer Girl / In Love With The DJ\
+$5 - Basement Jaxx - Just 1 Kiss (Sunship Remix)\
+$5 - Tracie Spencer - This Time Make It Funky\
+$5 - Alexander O'Neal - All True Man\
+$5 - Michael Fredo - Love All Over Again\
+$5 - Monette Evans - (This Is) The Time\
+$5 - Sash! ft Shannon - Move Mania\
+$5 - Boney M - Brown Girl 93 / Ma Baker 93 / Megamix\
+$5 - XX - Give It Up\
+$5 - Al Ben - Run To Me\
+$5 - Al Ben - Run To Me\
+$5 - Y Para Sol - Feels Like Sunshine\
+$5 - Y Para Sol - Feels Like Sunshine\
+$5 - A&R - Family (Funky house version to Christopher Cross / Angry Young Men)\
+$5 - Rui Da Silva - Touch me (Ren & Stimpy Remix)\
+$5 - Pascal - I Think We're Alone Now\
+$5 - Technotronic - Pump Up The Jam 2005 (Bootleg)\
+$5 - Jean Knight - Toot Toot\
+$5 - Soda Club - Take My Breath Away\
+$5 - Beverly - The Power Of Love\
+$5 - Inner City - Good Life (Eric Prydz Remix) (Bootleg)\
+$5 - Piano Pirates - When You Touch me\
+$5 - Fugees - Killing Me Softly (House Bootleg Remixes)\
+$5 - Lonnie Gordon - Happening All Over Again (UK Mixes)\
+$5 - DJ Pierre - We Gonna Funk\
+$5 - 666 - Amokk\
+$5 - Robert Miles - One and One (Remixes)\
+$5 - Elite - Extacy\
+$5 - Jay Jay - Do You Really Love me\
+$5 - Black Legend - You See The Trouble With me\
+$5 - Funkstar De Luxe vs Terry Maxx - Walkin In The Name\
+$5 - Fox The Fox - Precious Little Diamond\
+$5 - QFX - Freedom\
+$5 - Pras Michael ft ODB- Ghetto Superstar\
+$5 - Trancesetters - The Saga\
+$5 - Pedro Del Mar - Harder\
+$5 - Valerie Dare - The Night\
+$8 - Ruffneck - Move Your Body (Remixes) (2x12)\
+$5 - Bon Garçon - Freak U (Remixes)\
+$5 -  Love Inc - You're A Superstar 2003\
+$5 - Jacksoul - I Know What You Want\
+$5 - Les Rythmes Digitales - From Disco To Disco (Remix)\
+$8 - Laura Pausini - Surrender (2x12)\
+$5 - Lou Bega - I Got A Girl\
+$5 - Alex K & Dee - One Summer\
+$5 - Artie The 1 Man Party - Miami\
+$5 - Smoother - Electroconfusion\
+$5 - Jakarta - My Vision\
+$5 - Regina - Baby Love\
+$5 - Alphaville - Dance With me\
+$5 - Fancy - Slice Me nice\
+$5 - Ken Laszlo - Tonight\
+$5 - Bravo X - Broken Piano\
+$5 - Billy More - Up & Down\
+$5 - Al Corley - Square Rooms\
+$5 - Quid ft Charlotte - Need You Tonite (La La La)\
+$5 - Pretty Poison - Catch Me I'm Falling\
+$5 - Eric Tenet - Love Don't Love Me\
+$5 - Eiffel 65 - Losing You\
+$5 - Dark Monks ft MIM - Insane\
+$5 - Patria - Good Love\
+$5 - Felipe Inoa Patrone & Serebe Kironde - Silence\
+$5 - Jessy - Look At Me Now\
+$5 - Miami Dub Machine - Be Free With Your Love\
+$5 - Yves Deruyter - Sexy Animals\
+$5 - Club Crashers - Hell Yeah\
+$5 - Lexy & K-Paul - The Greatest DJ\
+$8 - No Mercy - Please Don't Go (2x12)
+$5 - Original 3 - Give You Love\
+$5 - Night Flight - Shake it Up / MUMM vs DHANY - I Wanna Be Free\
+$5 - Sunrise - Sunrise (Roach Motel - Wild luv Rework)\
+$5 - Bounty Killer - It's A Party\
+$5 - MIA - Woman\
+$5 - DJ Valium - Doin It Again\
+$5 - Christina Milan - Say I (Remix)\
+$5 - Trance Allstars - Go\
+$5 - Revil O - Fly Away\
+$5 - Loft - Hold On\
+$8 - La Bouche - In Your Life (2x12)\
+$5 - Dave Spoon feat Laura Vane - Won't Do It Again\
+$5 - Shakedown - At Night 2006\
+$5 - Seamus Haji - Last Night A DJ Saved My life\
+$5 - Tracie - Still In My Heart\
+$5 - Tracie Spencer - This House\
+$5 - DDT - Sting\
+$5 - Shortie vs Black Legend - Somebody\
+$5 - M/RCOV - Simulated\
+$5 - Blackstreet - Baby Be Mine\
+$5 - Malina - By Your Side\
+$5 - Antoine Clamaran - We Come To Party\
+$5 - Orgasmatron - Pussy Fever\
+$5 - Contour Classics 01 - Miss Jane - It's a Fine Day / SQ-1 - Can You Feel / Babe Instinct - Discobabes From Outer Space /  Sunbeam - Outside World\
+$5 - Conjure One ft Sinead O'connor - Tears From The Moon\
+$5 - Jessy - Look At Me Now (Remixes)\
+$5 - Bionikblue - Feel Alright / Kamasutra - Move Your Lingam To My Yoni\
+$5 - Brad Carter - Morning Always Comes Too Soon\
+$5 - Madjolly - Let The Sunshine In\
+$5 - Milk Inc - Land Of The living\
+$5 - King Africa - SALTA / La Bomba\
+$5 - Hypertrophy - Just Come Back 2 Me 2005\
+$5 - Christian Dio - Darlin Darlin Baby\
+$5 - BOZA - The Feeling / She's Looking Good\
+$5 - Midnight Star - Luv U Up\
+$5 - Chicane - Offshore\
+$5 - T.I. Ride Wit Me\
+$5 - Chhaya - Give It 2 Me\
+$5 - Alex Party - U Gotta Be\
+$5 - Dakka - Ready To Fly\
+$5 - Positive Connexion - Abracadabra\
+$5 - Lifelike - The Soul Of My Love\
+$5 - Red No 5 - Happiness Togetherness\
+$5 - The Christians - The bottle\
+$5 - Love Connection - The Bomb\
+$5 - Love Connection - $\
+$5 - Rob Base & DJ EZ Rock - Ready 2 Party (Remixes)\
+$5 - Organized Rhymes - Check The OR\
+$5 - Ed Stone - Feeling Like A Star\
+$5 - Mixx Vibes Session 2 - Big Pussy Woman (Short Dick Man Parody)
+$5 - Johnny Gill - Rub You The Right Way\
+$5 - Spice Girls - Holler! (Remix)\
+$5 - Me Phi Me - Pu Sho Hands 2Getha\
+$5 - Black Dave - Big Moma\
+$5 - Wink - Simple Man (Featuring The Interpreters)\
+$5 - Craig David - What's Yo Flava?
+$5 - Global Cee - Alive\
+$5 - DJ Shog - Jealousy\
+$5 - Rui Da Silva - Feel The Love\
+$5 - Blaze feat Sybil - When I Fall In Love\
+$5 - Tom De Neef vs Mochico - Sweat\
+$5 - White House feat Touria - Hold That Sucker Down\
+$5 - Suzanne Palmer - Sound Of The Drum\
+$5 - Jark Prongo - Shake It!\
+$5 - Eclipse - Take me Down\
+$5 - Tyken ft Awa - Every Word\
+$5 - Balistix - Keep Dancing\
+$5 - Avantguarde - Get Down Again\
+$5 - MK - Always\
+$5 - Urban Tribe - SALSA\
+$5 - Club Code - The Only One For Me\
+$5 - Rinocerose - La Guitaristique House\
+$5 - Public Art - River\
+$5 - Utah Saints - Something Good\
+$5 - Fortuna - Keep On Loving Me\
+$5 - Rune ft Morten Luco - Nothing New\
+$5 - Mystery - The Mystery\
+$5 - RIO Bravo - Thank God I'm A Country Boy\
+$10 - Bronski Beat - The Age Of Concent (Album)\
+$5 - Lo Fidelity Allstars - Feel What I Feel\
+$5 - Krupa - Round n Round\
+$5 - Chicane pres Tom Jones - Stoned In Love\
+$5 - Allison - Desert Street\
+$5 - Nancy Martinez - For Tonight\
+$5 - Rick Astley - She Wants To Dance With me\
+$5 - Ultra Sun - Love Me More\
+$8 - Trinity X - Forever (2x12)
+$5 - Eric Benet - Love Don't Love Me\
+$5 - Danni Minogue - Put The Needle On It\
+$5 - Red Drivers - Get Ahead\
+$5 - Oxygen ft Andrea Britton - Am I On Your Mind\
+$5 - 112 - Peaches & Cream\
+$5 - Chip Chip - Never Say Goodbbye\
+$5 - Private Pitch - Right Now / Brun Up The Night\
+$5 - SWV - I'm So Into You (Remixes)\
+$5 - The Thrillseekers - Synaesthesia 2004\
+$5 - Christian Dio - I Get High\
+$5 - Rachael Starr - Til There Was You\
+$5 - The Shamen - Move Any Mountain\
+$5 - Ian Van Dahl - Inspiration\
+$5 - Phunky Data - Hard Night\
+$5 - Nitro Genetic -  The Best / The Raiders - Sex Alarm\
+$5 - Suzanne Palmer - Luv 2 Luv\
+$5 - Sugar Babies - Encore (Ooh Ooh Yeah Yeah)\
+$5 - Superstar - Hey Mr. DJ\
+$5 - AFC Botswana - Only One\
+$5 - Laurent Wolf - About That\
+$5 - TJ Feat EVE D'Loren - Loops, God & Fire\
+$5 - DJ BoBo - Celebrate\
+$5 - Degrees of Motion - Do You Wan It Right Now (Haji & Emanual Remixes)\
+$5 - Funky Green Dogs - Rise Up\
+$8 - Funky Green Dogs - Can't Help It (2x12)\
+$5 - Freestylers - In Love With You\
+$5 - No Mercy - Bonita\
+$5 - Big Bub - Need Your Love\
+$5 - Cassandra - Just Tell Me Why\
+$5 - Alexia - Keep On Movin / Daze - Call Girl\
+$5 - Big Bass vs Mixhelle Narine - What You Do\
+$5 - Sureno - Guideline / Neo Cortex - Elements\
+$5 - Smash Mouth - You Are My Number One (Remixes)\
+$5 - Jermaine Jackson - When The Rain Begins To Fall\
+$5 - Ranka - Put Your Hands In The Air\
+$5 - Nokko - I Will Catch You\
+$5 - Eddie Thoneick feat Berget Lweis - Deeper Love (Remixes)\
+$5 - Arqonout - Your Body Is A Temple\
+$5 - 68 Beats - Replay The Night\
+$5 - Relic vs E Craig - Feels Like Runnin / Do It\
+$5 - R Kelly - Home Alone\
+$5 - King Lion - I Love The Melody\
+$5 - Lil Flip - Sunshine\
+$5 - The Funky Headhunters - Santa Monica\
+$5 - Ultra Nate - Desire\
+$5 - Thrust - This Is For Sure\
+$5 - DNA Project - Music Is My Life\
+$5 - Shauna Soloman - I Wanna Be\
+$8 - Armand Van Helden - The Funk Phenomena (Remixes) (2x12)
+$5 - Mory Kana - Tama\
+$5 - Orphean ft Terry - My People / Mr Phillips - 7th Day\
+$5 - Blackout - Mr. DJ\
+$5 - Rob & Raz - In Command\
+$5 - Tracy Acherman - Don't Want It (Don't Need It)\
+$5 - Schiller - Dream Of You\
+$5 - The Disco Brothers ft Andrea Britton - Inner Sense\
+$5 - Ricky J - Let It Go\
+$5 - Pan Position - Jack Yall\
+$5 - Reel 2 Real - Conway (Remix)\
+$5 - Troy Brown - Feel Alright\
+$5 - Ian Van Dahl - Believe\
+$5 - Mystery Men - Shake It\
+$5 - Tina Ann - I Do\
+$5 - Loce & Sass - Call My Name\
+$5 - Way Out West - Mindcircus\
+$5 - Axwell - Feel The Vibe\
+$5 - Expose - I Wish The Phone Would Ring (Remixes)\
+$5 - Jacynthe - This Is The Night\
+$5 - Louie Rankin - The Muscle (Remixes)\
+$5 - Thick Dick - Welcome 2 The Jungle\
+$5 - Plastic Phunk ft White Boy - Rock Bitch\
+$5 - Tullio De Piscopo - Stop Bajon\
+$5 - Kraxler & Schwarz - For Pleasure Only\
+$5 - Tom Novy - Take It (Closing Time)\
+$5 - Kraze - The Party 2006\
+$5 - The Original - I Luv U Baby (2004 Remixes)\
+$5 - Alpha Zone - Stay\
+$5 - Dada ft Sandy Rivera - Lollopop\
+$5 - EON - Spice\
+$5 - Daydream - Thinkin About You\
+$5 - Adrian Bahil - Kenikals\
+$5 - Jamie Dee - Everybody Needs Love\
+$5 - Madoka - Altered\
+$5 - Ce Ce Peniston - Finally\
+$5 - DHT - Listen To Your Heart\
+$5 - D-Devils - Sex & Drugs & house\
+$5 - Blunt Funkers - Move Around\
+$5 - E Rock ft Latanza Waters - Quiver / Heartbreaker\
+$5 - Oxygen ft Andrea Britton - AM I On Your Mind\
+$5 - ATB - The Remixes - Killer / Sanstorm /White\
+$5 - Good Players - What's Love / Eric Clyne - Stay Away\
