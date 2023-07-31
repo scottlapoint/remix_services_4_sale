@@ -1357,4 +1357,5 @@ $5 - Good Players - What's Love / Eric Clyne - Stay Away\
 $5 - Jack Fly - Look At The Light / Sold / Six 9\
 $5 - Club Rumba Latina 2 - La Banda Del Swing–	Que Buena Esta / Senor Carlos–	La Casa Latina (Extended Club Mix)\
 $5 - Playhouse - You Feel Music\
+$5 - Apollo - Dance\
 $8 - Clubland X-Treme - The System - If You Leave Me Now / Dallas Superstars - Helium / Uproar - The Roof Is On Fire / Head Hornys vs Miguel Serna - Something Real (2x12)
