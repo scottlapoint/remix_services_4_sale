@@ -934,7 +934,7 @@ PROMO ONLY CANADA Mainstream Club Canada CD - $5 ea (or $1200 for the whole set)
 
 ERG DANCE CANADA - ($1000 FOR THE SET)
 ----------------------------------------------------------------------------------
-Starting in 1994 Issue 1 and ending at Issue 254, with about a dozen or so missing after issue 218.\
+Starting in 1994 Issue 1 and ending at Issue 254, the following are missing from the batch 219,221,228,229,230,231,233,234,244,245,246\
 
 DMC Dance Extra Mixes - CD $5 ea ($275 for the lot)
 ----------------------------------------------------------------------------------
