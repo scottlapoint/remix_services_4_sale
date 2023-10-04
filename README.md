@@ -1,4 +1,4 @@
-Hello DJ World!
+Hello DJ World! - (Last updated Oct 4, 2023)
 
 As a DJ of 35+ years, I have decided to get out of the business and am selling off my entire collection.
 Below are lists of my Remix Service CD and Vinyl available.  I went through Discogs and used the Average selling
@@ -1358,4 +1358,8 @@ $5 - Jack Fly - Look At The Light / Sold / Six 9\
 $5 - Club Rumba Latina 2 - La Banda Del Swing–	Que Buena Esta / Senor Carlos–	La Casa Latina (Extended Club Mix)\
 $5 - Playhouse - You Feel Music\
 $5 - Apollo - Dance\
+$5 - J.K. - You Got Me Dancing\
+$5 - J.K. - You Make Me Feel Good (Remix)
+$5 - Skee Lo - I Wish
+$5 - C&C Music Factory - Things That Make You Go Hmmmm.... (The Remixes)
 $8 - Clubland X-Treme - The System - If You Leave Me Now / Dallas Superstars - Helium / Uproar - The Roof Is On Fire / Head Hornys vs Miguel Serna - Something Real (2x12)
