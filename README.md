@@ -1216,7 +1216,6 @@ $5 - Lifelike - The Soul Of My Love\
 $5 - Red No 5 - Happiness Togetherness\
 $5 - The Christians - The bottle\
 $5 - Love Connection - The Bomb\
-$5 - Love Connection - $\
 $5 - Rob Base & DJ EZ Rock - Ready 2 Party (Remixes)\
 $5 - Organized Rhymes - Check The OR\
 $5 - Ed Stone - Feeling Like A Star\
@@ -1271,7 +1270,6 @@ $5 - Christian Dio - I Get High\
 $5 - Rachael Starr - Til There Was You\
 $5 - The Shamen - Move Any Mountain\
 $5 - Ian Van Dahl - Inspiration\
-$5 - Phunky Data - Hard Night\
 $5 - Nitro Genetic -  The Best / The Raiders - Sex Alarm\
 $5 - Suzanne Palmer - Luv 2 Luv\
 $5 - Sugar Babies - Encore (Ooh Ooh Yeah Yeah)\
