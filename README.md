@@ -1403,3 +1403,7 @@ $5 - Abbacadabra - The Winner Takes It All\
 $5 - Abbacadabra - Knowing Me Knowing You\
 $5 - Abbacadabra - The Visitors / One Of Us\
 $5 - Axel F - The Winner Takes It All\
+$5 - Sash! - With My Own Eyes\
+$8 - Soul Solution - Don't Ask Why (2x12") (ToTo Remix)
+$5 - Kris Kross - Alright
+$5 - Thalia / Sean Paul/ Snow - Dance Dance / Get Busy / Whass Up
