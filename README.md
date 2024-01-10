@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Oct 4, 2023)
+Hello DJ World! - (Last updated Jan 10, 2024)
 
 As a DJ of 35+ years, I have decided to get out of the business and am selling off my entire collection.
 Below are lists of my Remix Service CD and Vinyl available.  I went through Discogs and used the Average selling
@@ -15,7 +15,9 @@ and US for now.  As most of you are aware shipping is not cheap these days, so 
 
 *** SHIPPING UPDATES ***
 ------------------------
-Canada Post - $12-$30 for non tracked depending on weight (non-insured).  With tracking - add $6. Insurance can vary will have to get a quote.
+I ship VIA Canada Post - Rates can be $15 and up depending on weight and location. This is for non-insured packages, insurance is $1 / $100 up to $1000 (Canada Post sets the limit).
+
+I have been shipping all the way up to Austrailia and so far the shipping hasn't gone above $50USD (ish), some were only $15 depending on the order.
 
 A note on the condition of these, let's be honest, I was a DJ and have used these -- some more than others, some appear
 to be brand new and maybe only used a few times.  Others have been used, if I notice one that has been used and has
@@ -903,7 +905,7 @@ CD - $10 - X-SERIES VOL 1\
 CD - $10 - X-SERIES VOL 2\
 CD - $10 - X-SERIES VOL 3\
 
-PROMO ONLY CANADA Mainstream Club Canada CD - $5 ea (or $1200 for the whole set) (273 CDS) 
+PROMO ONLY CANADA Mainstream Club Canada CD - $5 ea (or $1100 for the whole set) (273 CDS) 
 ----------------------------------------------------------------------------------
 1992 - Jun / Jul / Aug / Sep\
 1993 - Jan / Feb / Apr / Jun / Jul / Oct\
@@ -932,15 +934,16 @@ PROMO ONLY CANADA Mainstream Club Canada CD - $5 ea (or $1200 for the whole set)
 2019 - Jan to Dec (12)\
 2020 - Jan to June (6)\
 
-ERG DANCE CANADA - ($1000 FOR THE SET)
+ERG DANCE CANADA - ($600 FOR THE SET OR $5 EA) (I would prefer to sell the whole set)
 ----------------------------------------------------------------------------------
-Starting in 1994 Issue 1 and ending at Issue 254, the following are missing from the batch 219,221,228,229,230,231,233,234,244,245,246\
+Starting in Jan 2004 Issue 118 and ending at Issue 254, the following are missing from the batch 219,221,228,229,230,231,233,234,244,245,246\
+
 
 DMC Dance Extra Mixes - CD $5 ea ($275 for the lot)
 ----------------------------------------------------------------------------------
 Vol 1 - 73, 96, 98, 99\
 
-A STATE OF TRANCE CLASSICS ($300 for the lot)
+A STATE OF TRANCE CLASSICS ($375 for the lot)
 ----------------------------------------------------------------------------------
 A STATE OF TRANCE CLASSICS VOL 1-15 (UNMIXED) - $25 ea\
 
@@ -1354,7 +1357,6 @@ $5 - Apollo - Dance\
 $5 - J.K. - You Got Me Dancing\
 $5 - J.K. - You Make Me Feel Good (Remix)\
 $8 - Clubland X-Treme - The System - If You Leave Me Now / Dallas Superstars - Helium / Uproar - The Roof Is On Fire / Head Hornys vs Miguel Serna - Something Real (2x12)\
-
 $5 - Skee Lo - I Wish\
 $5 - C&C Music Factory - Things That Make You Go Hmmmm.... (The Remixes)\
 $5 - Georgie Porgit - Sunshine\
