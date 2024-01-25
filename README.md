@@ -1409,3 +1409,4 @@ $5 - Sash! - With My Own Eyes\
 $8 - Soul Solution - Don't Ask Why (2x12") (ToTo Remix)
 $5 - Kris Kross - Alright
 $5 - Thalia / Sean Paul/ Snow - Dance Dance / Get Busy / Whass Up
+$5 - Lisa Lougheed - Love Vibe
