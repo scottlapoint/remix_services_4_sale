@@ -951,7 +951,8 @@ A STATE OF TRANCE CLASSICS VOL 1-15 (UNMIXED) - $25 ea\
 -----------------------------------------------------------------------------------\
 CD MAXI AND SINGLES FOR SALE\
 --------------------------------------------------------------------------------\
-$5 - Age of Love - The Age Of Love
+$5 - Age of Love - The Age Of Love\
+$20 - Andain - Beautiful Things\
 $5 - Anastacia - I'm Outta Love\
 $10 - Aqua - Barbie Girl\
 $10 - Aqua - Roses Are Red\
@@ -977,6 +978,7 @@ $10 - Madonna - Nothing Fails\
 $20 - Madonna - Ray Of Light\
 $40 - Madonna - The Power of Good-Bye\
 $30 - Madonna - Nothing Really Matters\
+$5 - Mariah Carey - Fantasy\
 $5 - New Atlantic - The Sunshine After The Rain\
 $15 - Sinéad O'Connor - Troy (The Phoenix From The Flame) CD1\
 $15 - Sinéad O'Connor - Troy (The Phoenix From The Flame) CD2\
