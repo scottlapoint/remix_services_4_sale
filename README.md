@@ -953,6 +953,7 @@ CD MAXI AND SINGLES FOR SALE\
 --------------------------------------------------------------------------------\
 $5 - Age of Love - The Age Of Love\
 $20 - Andain - Beautiful Things\
+$20 - Ame - Rej\
 $5 - Anastacia - I'm Outta Love\
 $10 - Aqua - Barbie Girl\
 $10 - Aqua - Roses Are Red\
@@ -961,6 +962,8 @@ $10 - Aqua - Lolipop (Candyman) / Doctor Jones\
 $10 - Britney Spears – ...Baby One More Time\
 $20 - Energy 52 - Cafe Del Mar (2003 mixes)\
 $15 - Janet Jackson Remixed\
+$20 - Janet Jackson - If\
+$25 - Jane Child - Don't Want To Fall Iin Love\
 $5 - Jaydee - Plastic Dreams 97\
 $10 - Madonna - Get Together\
 $50 - Madonna - Deeper and Deeper / Bad Girl / Erotica (Japan Remix EP)\
@@ -979,6 +982,8 @@ $20 - Madonna - Ray Of Light\
 $40 - Madonna - The Power of Good-Bye\
 $30 - Madonna - Nothing Really Matters\
 $5 - Mariah Carey - Fantasy\
+$20 - Mariah Carey - Emotions\
+$20 - Mariah Carey - Make It Happen\
 $5 - New Atlantic - The Sunshine After The Rain\
 $15 - Sinéad O'Connor - Troy (The Phoenix From The Flame) CD1\
 $15 - Sinéad O'Connor - Troy (The Phoenix From The Flame) CD2\
