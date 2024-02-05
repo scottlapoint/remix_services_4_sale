@@ -952,6 +952,9 @@ A STATE OF TRANCE CLASSICS VOL 1-15 (UNMIXED) - $25 ea\
 CD MAXI AND SINGLES FOR SALE\
 --------------------------------------------------------------------------------\
 $5 - Age of Love - The Age Of Love\
+$10 - Alice Deejay - Will I Ever\
+$3 - Alice Deejay - Celebrate Our Love\
+$5 - Alice Deejay - Better Off Alone\
 $20 - Andain - Beautiful Things\
 $20 - Ame - Rej\
 $5 - Anastacia - I'm Outta Love\
@@ -959,6 +962,7 @@ $10 - Aqua - Barbie Girl\
 $10 - Aqua - Roses Are Red\
 $10 - Aqua - My Oh My\
 $10 - Aqua - Lolipop (Candyman) / Doctor Jones\
+$3 - Beat System - Fresh (Kool & The Gang Remix)\
 $10 - Britney Spears – ...Baby One More Time\
 $20 - Energy 52 - Cafe Del Mar (2003 mixes)\
 $15 - Janet Jackson Remixed\
@@ -985,6 +989,7 @@ $5 - Mariah Carey - Fantasy\
 $20 - Mariah Carey - Emotions\
 $20 - Mariah Carey - Make It Happen\
 $5 - New Atlantic - The Sunshine After The Rain\
+$3 - Reel To Real - Jazz It Up\
 $15 - Sinéad O'Connor - Troy (The Phoenix From The Flame) CD1\
 $15 - Sinéad O'Connor - Troy (The Phoenix From The Flame) CD2\
 $5 - The Outhere Brothers – Don't Stop (Wiggle, Wiggle) / La La La Hey Hey\
