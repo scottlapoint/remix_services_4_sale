@@ -934,21 +934,55 @@ PROMO ONLY CANADA Mainstream Club Canada CD - $5 ea (or $1100 for the whole set)
 2019 - Jan to Dec (12)\
 2020 - Jan to June (6)\
 
-ERG DANCE CANADA - ($600 FOR THE SET OR $5 EA) (I would prefer to sell the whole set)
-----------------------------------------------------------------------------------
+ERG DANCE CANADA - ($600 FOR THE SET OR $5 EA) (I would prefer to sell the whole set)\
+----------------------------------------------------------------------------------\
 Starting in Jan 2004 Issue 118 and ending at Issue 254, the following are missing from the batch 219,221,228,229,230,231,233,234,244,245,246\
 
 
-DMC Dance Extra Mixes - CD $5 ea ($275 for the lot)
-----------------------------------------------------------------------------------
+DMC Dance Extra Mixes - CD $5 ea ($275 for the lot)\
+----------------------------------------------------------------------------------\
 Vol 1 - 73, 96, 98, 99\
 
-A STATE OF TRANCE CLASSICS ($375 for the lot)
-----------------------------------------------------------------------------------
+A STATE OF TRANCE CLASSICS ($375 for the lot)\
+----------------------------------------------------------------------------------\
 A STATE OF TRANCE CLASSICS VOL 1-15 (UNMIXED) - $25 ea\
 
 
-MISC 12" FOR SAlE
+-----------------------------------------------------------------------------------\
+CD MAXI AND SINGLES FOR SALE\
+--------------------------------------------------------------------------------\
+$5 - Age of Love - The Age Of Love
+$5 - Anastacia - I'm Outta Love\
+$10 - Aqua - Barbie Girl\
+$10 - Aqua - Roses Are Red\
+$10 - Aqua - My Oh My\
+$10 - Aqua - Lolipop (Candyman) / Doctor Jones\
+$10 - Britney Spears – ...Baby One More Time\
+$20 - Energy 52 - Cafe Del Mar (2003 mixes)\
+$15 - Janet Jackson Remixed\
+$5 - Jaydee - Plastic Dreams 97\
+$10 - Madonna - Get Together\
+$50 - Madonna - Deeper and Deeper / Bad Girl / Erotica (Japan Remix EP)\
+$10 - Madonna - Vogue\
+$10 - Madonna - Rescue Me\
+$10 - Madonna - Remixed & Revisited\
+$20 - Madonna - Miles Away\
+$15 - Madonna - Love Profusion\
+$15 - Madonna - Hollywood\
+$10 - Madonna - Die Another Day\
+$5 - Madonna - American Pie\
+$10 - Madonna - Music\
+$10 - Madonna - Secret (The Remixes)\
+$10 - Madonna - Nothing Fails\
+$20 - Madonna - Ray Of Light\
+$40 - Madonna - The Power of Good-Bye\
+$30 - Madonna - Nothing Really Matters\
+$5 - New Atlantic - The Sunshine After The Rain\
+$15 - Sinéad O'Connor - Troy (The Phoenix From The Flame) CD1\
+$15 - Sinéad O'Connor - Troy (The Phoenix From The Flame) CD2\
+$5 - The Outhere Brothers – Don't Stop (Wiggle, Wiggle) / La La La Hey Hey\
+
+
 -----------------------------------------------------------------------------------
 12" SINGLES FOR SALE
 --------------------------------------------------------------------------------
@@ -986,7 +1020,16 @@ $5 - Simply Bass Promo Sam Mollison - Will You Love Me In The Morning / 49ers. -
 $5 - US - Vertigo (Remix)\
 $5 - David Morales Presents The Face - Needing You\
 $8 - Culture Beat - Insanity (2x12)\
-$8 - Rauhofer Live @ Roxy - Madonna - Mother & Father / Spectrum - Kinda New / Robbie Rivers - Master Of Drums / DJ Rooster & Sammy Peralta - Move Your Body\
+$10 - Rauhofer Live @ Roxy - Madonna - Mother & Father / Spectrum - Kinda New / Robbie Rivers - Master Of Drums / DJ Rooster & Sammy Peralta - Move Your Body\
+$10 - Kid Vicious - Into The Groove (Madonna Bootleg)\
+$10 - Rhythm Republic - Into TYhe Groove (Madonna bootleg)\
+$10 - DJ Toys - Ladies w/ Attitude (Madonna Bootleg)\
+$10 - Madonna - Sorry Beat (Bootleg)\
+$10 - Madonna - Jump / New York\
+$5 - Patty - Ray of Light (Madonna Cover)\
+$10 - Donna - Everybody (Madonna Cover)\
+$50 - Britney Spears ft Madonna - Me Against The Music (2x12")\
+$50 - Madonna Vs. New Order – Blue Hunger (Blue Monday vs Hung Up Bootleg)\
 $5 - U96 - Love Sees No Colour(Bass Bumpers Remix)\
 $5 - Fresh System - Down Under\
 $5 - Celine Dion - The Unison Mixes\
@@ -1003,7 +1046,6 @@ $5 - Kelis ft Too Short - Bossy (Remixes)\
 $5 - David Morales Presents The Face - Needing U II / Melo G - G Spot\
 $5 - DJ BoBo - Freedom\
 $5 - Moloko - Sing It Back (Mousse T Remix)\
-$5 - Kid Vicious - Into The Groove\
 $5 - Xeya - KISS Me\
 $5 - Da Cool - Wanna Get Funky\
 $5 - Ex-Melody - Love Destiny\
@@ -1035,7 +1077,7 @@ $5 - Jo Jo - Counting On Your Love\
 $5 - Patty - Ray Of Light\
 $5 - Alexia - Gimme Love\
 $5 - Double X Voice - Everybody Get Up\
-$5 -  Double You - Part Time Lover / Netzwerk - Breakdown / The Down\
+$5 - Double You - Part Time Lover / Netzwerk - Breakdown / The Down\
 $5 - Yo:Co Ross - Miss Me\
 $5 - KIKKA - Sweet Dreams\
 $5 - Volto ft Pitbull - Bumper Remix\
@@ -1059,7 +1101,7 @@ $5 - 4-2 The Floor - Future Love\
 $5 - Reggy O - Let The Music Play\
 $5 - Love Message - Love Message\
 $5 - S.I.F.T.Y.P. - Fade2Grey 2004 (Bootleg)\
-$5 - Thomas Falcon Presents Valerie\
+$10 - Thomas Falcon Presents Valerie (Steve Winwood Bootleg)\
 $5 - Boston - One In A Million / Believe\
 $5 - Kaci - Paradise \
 $5 - Candy Fup - Strawberry Fields Forever\
