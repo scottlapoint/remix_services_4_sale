@@ -34,23 +34,6 @@ CD - $50 - Prime Cuts - The Best of Vol 2 \
 CD - $50 - Prime Cuts - The Best Of Volume 3 (Producer's Choice) \
 
 
-POWERHOUSE ($180 for the lot)
-----------------------------------------------------------------------------------
-CD - $35 - Resurrection - 7-8-9\
-CD - $40 - Powerhouse Best of 1991\
-CD - $30 - Powerhouse Best of 1992\
-CD - $30 - Powerhouse Very Best of 1997-1998 (2xCD)\
-CD - $40 - Powerhouse 16\
-CD - $40 - Powerhouse 18\
-CD - $20 - Powerhouse 19\
-CD - $15 - Powerhouse 20\
-CD - $25 - Powerhouse 21 \
-
-
-12 - $15 - Powerhouse Issue 6 (2x12")\
-12 - $15 - Powerhouse Issue 8 (2x12")\
-
-
 DISCOTECH ($300 for the lot)
 ----------------------------------------------------------------------------------
 CD - $35 - Issue Three\
@@ -943,9 +926,33 @@ DMC Dance Extra Mixes - CD $5 ea ($275 for the lot)\
 ----------------------------------------------------------------------------------\
 Vol 1 - 73, 96, 98, 99\
 
-A STATE OF TRANCE CLASSICS ($375 for the lot)\
+A STATE OF TRANCE CLASSICS (4xCD sets) ($375 for the lot)\
 ----------------------------------------------------------------------------------\
-A STATE OF TRANCE CLASSICS VOL 1-15 (UNMIXED) - $25 ea\
+$50 - A State of Trance Classics 1\
+$50 - A State of Trance Classics 2\
+$30 - A State of Trance Classics 3\
+$50 - A State of Trance Classics 4\
+$40 - A State of Trance Classics 5\
+$40 - A State of Trance Classics 6\
+$30 - A State of Trance Classics 7\
+$25 - A State of Trance Classics 8\
+$25 - A State of Trance Classics 9\
+$30 - A State of Trance Classics 10\
+$30 - A State of Trance Classics 11\
+$20 - A State of Trance Classics 12\
+$30 - A State of Trance Classics 13\
+$20 - A State of Trance Classics 14\
+
+
+-----------------------------------------------------------------------------------\
+CD COMPILATIONS (VARIOUS ARTISTS)
+--------------------------------------------------------------------------------\
+$15 - Ultimate Trance Remixed (2xCD)\ 
+$15 - Trance Divas 1 (2xCD)\ 
+$15 - Trance Divas 2 (2xCD)\ 
+$40 - 30 Dance Divas (2xCD)\
+$25 - The Ultimate Trance Album (6xCD)\
+
 
 
 -----------------------------------------------------------------------------------\
