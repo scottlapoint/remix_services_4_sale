@@ -945,37 +945,77 @@ $20 - A State of Trance Classics 14\
 
 
 -----------------------------------------------------------------------------------\
-CD COMPILATIONS (VARIOUS ARTISTS)
+CD ALBUMS\
+--------------------------------------------------------------------------------\
+$25 - David Guetta - One Love XXL (3cCD + DVD)\
+$10 - Kaskade - Fire & Ice (2xCD)\
+
+
+-----------------------------------------------------------------------------------\
+CD COMPILATIONS (VARIOUS ARTISTS)\
 --------------------------------------------------------------------------------\
 $15 - Ultimate Trance Remixed (2xCD)\ 
 $15 - Trance Divas 1 (2xCD)\ 
 $15 - Trance Divas 2 (2xCD)\ 
 $40 - 30 Dance Divas (2xCD)\
 $25 - The Ultimate Trance Album (6xCD)\
+$25 - The Hard House Album Vol 1 (2xCD)
 
 
 
 -----------------------------------------------------------------------------------\
 CD MAXI AND SINGLES FOR SALE\
 --------------------------------------------------------------------------------\
+$10 - Ace of Base - Wheel Of Fortune\
+$15 - Ace Of Base – Whenever You're Near Me (The Remixes)\
+$4 - Bran Van 3000 – Afrodiziak
 $5 - Age of Love - The Age Of Love\
+$5 - Axwell - Feel The Vibe\
 $10 - Alice Deejay - Will I Ever\
 $3 - Alice Deejay - Celebrate Our Love\
 $5 - Alice Deejay - Better Off Alone\
 $20 - Andain - Beautiful Things\
+$10 - Amber Colour Of Love\
+$10 - Amber - This Is Your Night\
 $20 - Ame - Rej\
 $5 - Anastacia - I'm Outta Love\
 $10 - Aqua - Barbie Girl\
 $10 - Aqua - Roses Are Red\
 $10 - Aqua - My Oh My\
 $10 - Aqua - Lolipop (Candyman) / Doctor Jones\
+$5 - Armand Van Helden Presents Old School Junkies – The Funk Phenomena (Pt. 2)\
 $3 - Beat System - Fresh (Kool & The Gang Remix)\
+$3 - Big Bass – Badda Bing Badda Boom\
+$5 - Bob Sinclar & Cutee-B* Feat. Dollar Man* & Big Ali & Makedah – Rock This Party (Everybody Dance Now)\
+$5 - Boys II Men - Can't Let Her Go\
+$5 - Brandy and Ray J - Another Day In Paradise\
 $10 - Britney Spears – ...Baby One More Time\
+$10 - C + C Music Factory Featuring Freedom Williams – Things That Make You Go Hmmmm...\ 
+$10 - C + C Music Factory Featuring Freedom Williams – Things That Make You Go Hmmmm...\
+$5 - Charles & Eddie – Would I Lie To You?\
+$10 - Clivilles & Cole - Pride (In The Name Of Love)\
+$5 - Corenell Vs The Lisa Marie Experience – Keep On Jumpin\
+$5 - Coolio - Fantastic Voyage\
+$15 - Cory Lee - The Naughty Song\
+$5 - Deep Dish - Flashdance\
+$5 - DJ BoBo - There's A Party\
+$25 - Eddie Amador – House Music (Remixes)\
+$10 - Fun Factory - I Wanna Be With You (Enhanced)\
 $20 - Energy 52 - Cafe Del Mar (2003 mixes)\
+$5 - Fruit De La Passion – Tic Tic Tac\
+$5 - Infernal – From Paris To Berlin - The Club Mixes\
 $15 - Janet Jackson Remixed\
+$5 - Janet Jackson - Go Deep\
 $20 - Janet Jackson - If\
 $25 - Jane Child - Don't Want To Fall Iin Love\
 $5 - Jaydee - Plastic Dreams 97\
+$5 - Inner City - Hallelujah 92\
+$5 - Kelly Clarkson – Low / Miss Independant\
+$5 - Kris Kross - Jump (Remixes)\
+$10\- LL Cool J - Mama Said Knock You out\
+$15 - Lady GaGa - Just Dance (The Remixes)\
+$10 - Lady Sovereign Feat. Missy Elliott – Love Me Or Hate Me\
+$40 - Love & Laughter - I Surrender\
 $10 - Madonna - Get Together\
 $50 - Madonna - Deeper and Deeper / Bad Girl / Erotica (Japan Remix EP)\
 $10 - Madonna - Vogue\
@@ -992,14 +1032,43 @@ $10 - Madonna - Nothing Fails\
 $20 - Madonna - Ray Of Light\
 $40 - Madonna - The Power of Good-Bye\
 $30 - Madonna - Nothing Really Matters\
-$5 - Mariah Carey - Fantasy\
 $20 - Mariah Carey - Emotions\
+$6 - Mariah Carey - Fantasy\
+$20 - Mariah Carey - It's Like That\
 $20 - Mariah Carey - Make It Happen\
+$5 - Marly - You Never Know\
+$10 - Michael Jackson – Black Or White (The Clivillés & Cole (C&C) Remixes)\
+$5 - Michael Gray feat SHelly Pole - Borderline\
+$10 - Mr. President – Coco Jamboo (The Remixes)\
 $5 - New Atlantic - The Sunshine After The Rain\
+$23 - Nelly Furtado – Força (Remixes)\
+$10 - Patsy - Money 4 Me\
+$20 - Pete Shop Boys - New Your City Boy\
+$5 - Poker Pets - Lovin You\
+$10 - Prince And The N.P.G. – Gett Off\
+$5 - Real McCoy - Another Night\
+$5 - Real McCoy - Love & Devotion\
+$5 - Reel 2 Real Featuring The Mad Stuntman – Can You Feel It?\
 $3 - Reel To Real - Jazz It Up\
+$5 - Rio Bravo - Thank God I'm A Country Boy\
+$3 - Salt 'N' Pepa - R U Ready\
+$5 - Salt 'N' Pepa - Start Me Up\
+$5 - Sarah Washington - I Will Always Love You (Dance Mix)
+$5 - Shape UK – Back To Basics\
 $15 - Sinéad O'Connor - Troy (The Phoenix From The Flame) CD1\
 $15 - Sinéad O'Connor - Troy (The Phoenix From The Flame) CD2\
+$5 - Snap! - Cult Of Snap\
+$4 - Stereo MC's - Step It Up\
+$20 - Sunkids Feat. Chance – Rise Up\
+$5 - SoundFactory - Good Time\
+$5 - The Offspring - Pretty Fly For A White Guy\
 $5 - The Outhere Brothers – Don't Stop (Wiggle, Wiggle) / La La La Hey Hey\
+$5 - TV Rock - Flaunt It\
+$5 - Vengaboys – Uncle John From Jamaica\
+$10 - Unique II - Break My Stride\
+$20 - Whigfield - Doo-Whop\
+$10 - Whitney Houston – Heartbreak Hotel / It's Not Right But It's Okay (The Dance Mixes)\
+
 
 
 -----------------------------------------------------------------------------------
