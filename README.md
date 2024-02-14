@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Jan 10, 2024)
+Hello DJ World! - (Last updated Feb 13, 2024)
 
 As a DJ of 35+ years, I have decided to get out of the business and am selling off my entire collection.
 Below are lists of my Remix Service CD and Vinyl available.  I went through Discogs and used the Average selling
@@ -968,12 +968,14 @@ CD MAXI AND SINGLES FOR SALE\
 --------------------------------------------------------------------------------\
 $4 - 2 Unlimited - Magic Friend / Megamix\
 $10 - 2 Unlimited – No Limit 2.3\
+$5 - 2 Unlimited - Tribal Dance 2.4\
 $10 - 4 Strings - Let It Raun\
 $5 - 56k Feat. Bejay – Save A Prayer\
 $5 - 49ers – I Got The Music Aka I Got It\
 $3 - A.D.A.M. - Zombie (Dance Version)\
 $5 - A Studio Feat. Polina - S.O.S. \
 $10 - Abbacadabra - Dancing Queen\
+$10 - Ace Of Base - Cruel Summer (The Remixes)\
 $5 - Ace Of Base - Living In Danger\
 $10 - Ace of Base - Wheel Of Fortune\
 $15 - Ace Of Base – Whenever You're Near Me (The Remixes)\
@@ -1035,6 +1037,7 @@ $4 - Chess - If You Leave Me Now (Chicago Dance Mix)\
 $10 - Chic – Chic Mystique (Remixes)\
 $3 - Chocolate - Everybody Salsa\
 $10 - Clivilles & Cole - Pride (In The Name Of Love)\
+$5 - CoCo - I Need A Miracle\
 $5 - Command3r Tom - Attention!\
 $50 - Common Sense - Live It Up\
 $10 - Collage – Hasta La Vista / Je M'envole Avec Toi\
@@ -1065,8 +1068,10 @@ $4 - ErickE - The Beat Is Rockin\
 $4 - Enrique Iglesias - Rhythm Divine\
 $4 - Faithless – God Is A DJ\
 $20 - Finesse & Showbiz – Keep On Movin\
+$10 - Fonzerelli – Moonlight Party\
 $10 - Forcefield Ft. Gregory Jones – It's A Disco Night\
 $3 - Fragma - Embrace Me\
+$3 - Fragma - Time and Time Again\
 $3 - Freestylers - In Love With You\
 $3 - Fugees (Refugee Camp)* – Ready Or Not\
 $10 - Fun Factory - I Wanna Be With You (Enhanced)\
@@ -1086,7 +1091,9 @@ $5 - Inner City - Follow Your Heart\
 $5 - Inner City - Hallelujah 92\
 $5 - James Brown – Can't Get Any Harder (C&C Remix)\
 $3 - JD & Mariah Carey - Sweetheart\
+$10 - J.K. - My Radio\
 $10 - J.K. – You & I / Beat It \
+$5 - Jakatta Featuring Seal – My Vision\
 $15 - Janet Jackson Remixed\
 $5 - Janet Jackson - Go Deep\
 $20 - Janet Jackson - If\
@@ -1162,10 +1169,12 @@ $10 - Mr. President – Coco Jamboo (The Remixes)\
 $3 - Mylo - In My Arms\
 $100 - Nadia - Live On Love\
 $5 - New Atlantic - The Sunshine After The Rain\
-$23 - Nelly Furtado – Força (Remixes)\
+$23 - Nelly Furtado – Forca (Remixes)\
+$20 - Nelly Furtado – Maneater (Remixes)\
 $4 - Next Block Feat. Moktar – Give You My Love\
 $5 - Novy Vs Eniac – Pumpin...\
 $5 - Papaya - hero\
+$10 - Offer Nissim Feat. Maya – Be My Boyfriend\
 $20 - Offer Nissim Feat Maya – First Time\
 $5 - Pat & Mick - Hot Hot Hot Plus The Concrete Megamix\
 $10 - Patsy - Money 4 Me\
