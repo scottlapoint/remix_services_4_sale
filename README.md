@@ -956,6 +956,7 @@ CD COMPILATIONS (VARIOUS ARTISTS)\
 --------------------------------------------------------------------------------\
 $15 - Dance Connection Vol. 1\
 $25 -  Dance Remakes - The Original Covers\
+$5 - Party Mix\
 $20 - Sounds Of The City - Manchester\
 $15 - Ultimate Trance Remixed (2xCD)\ 
 $15 - Trance Divas 1 (2xCD)\ 
