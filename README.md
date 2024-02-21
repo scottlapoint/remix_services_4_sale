@@ -1066,6 +1066,7 @@ $5 - Azul Azul – La Bomba\
 $5 - Backstreet Boys – As Long As You Love Me / Quit Playing Games / Everybody (Remixes)\
 $5 - Backstreet Boys – Everybody (Backstreet's Back)\
 $10 - Bass Bumpers Feat. E. Mello – Get The Big Bass\
+$20 - Basement Three / Cindy (3) / DJ Hush – Dum Dum / Crazy For You / It's A Fine Day\
 $5 - Basement Jaxx - Red Alert\
 $3 - Beat System - Fresh (Kool & The Gang Remix)\
 $5 - Beatfreakz - Superfreak\
@@ -1116,6 +1117,7 @@ $10 - Caution Records - Multi Singles #5\
 $5 - Cartouche - Shame\
 $3 - Cascada – Everytime We Touch\
 $60 - CeCe Peniston - Finally\
+$5 - Ce Ce Peniston – Lifetime To Love\
 $5 - Celine Dion* – My Heart Will Go On (Love Theme From 'Titanic') (Dance Mixes)\
 $5 - Charles & Eddie – Would I Lie To You?\
 $5 - Chocolate Puma – Always And Forever\
@@ -1149,7 +1151,9 @@ $15 -  Dancelicious - Hot Dance Mixes (Beyonce / Solange / Lady Gaga)\
 $4 - Danzel - Pump It Up\
 $5 - Davidson - All I Wanna Do\
 $5 - Daze – Together Forever (The Cyber Pet Song)\
+$5 - Danceteria – The Power Of Goodbye\
 $225 - Darootz Featuring Charvoni - My Warrior, My Saviour\
+$5 - Deborah Cox – Nobody's Supposed To Be Here (The Dance Mixes)\
 $30 - Decoy & Roy - Inner Life\
 $10 - Denise Lopez – Don't You Wanna Be Mine\
 $10 - Dee Dee - The One\
@@ -1166,6 +1170,7 @@ $5 - DJ BoBo - Pray\
 $10 - DJ BoBo - There's A Party\
 $5 - DJ Company – Hey Everybody (Out Of Control)\
 $5 - DJ Sammy & William Hawk - Boyse of Summer & Sunrise\
+$3 - DJ Spin - Raise Em High\
 $10 - DJ Tiesto Featuring Nicola Hitchcock From Mandalay – In My Memory (Remixes)\
 $5 - Dominoo - Run Run Away (Great Big Sea Dance Version)\
 $10 - Destinys Child - Bootylicious\
@@ -1180,6 +1185,8 @@ $10 - Dr. Alban – Sing Hallelujah! (Remix)\
 $20 - Dr. Alban – Sing Hallelujah! (Recall 2004)\
 $20 - Echo Bass - Say Up And Down\
 $25 - Eddie Amador – House Music (Remixes)\
+$3 - Eiffel 65 - Move Your Body\
+$5 - Eiffel 65 - Lucky\
 $200 - Emjay - Sound of My Heartbeat\
 $200 - Emjay - Flying To The Moon\
 $20 - Energy 52 - Cafe Del Mar (2003 mixes)\
@@ -1210,6 +1217,8 @@ $20 - Gusgus - David\
 $3 - Gillette – Mr. Personality\
 $3 - Gigi D'Agostino - Bla Bla Bla Remix\
 $120 - Gloria Gaynor - I Will Survive 2000\
+$5 - Grace – Not Over Yet\
+$10 - Grand Menage – Tribalmania (Magalenha)\
 $50 - Groove Coverage - Poison & God Is A Girl\
 $5 - Haddaway - What Is Love Reloaded\
 $5 - Happy Nation - Girls Just Wanna Have Fun\
@@ -1254,9 +1263,11 @@ $25 - Jane Child - Don't Want To Fall Iin Love\
 $15 - Jane Child - Don't Want To Fall In Love\
 $5 - Jaydee - Plastic Dreams 97\
 $5 - Jenna Drey - Why Should I Believe You - The Remixes\
+$5 - Jessica Simpson – This Is The Remix\
 $5 - Jet Fuel Featuring Rob Base & DJ E-Z Rock – Take This Party Higher\
 $5 - Jennifer - Da-dee-da\
 $3 - Jennifer Lopez - If You Had My Love\
+$3 - Jennifer Lopez - Let's Get Loud\
 $10 - Jessie And The Toy Boys Featuring Yelawolf – Push It (The Remixes)\
 $10 - Jewel – Intuition\
 $10 - Jewel - Stand\
@@ -1343,6 +1354,7 @@ $10 - Michael Woods Feat. Imogen Bailey – If U Want Me\
 $10 - Michelle Branch - Breathe\
 $3 - Miranda - Vamos A La Playa\
 $5 - Missy Elliott – 4 My People\
+$5 - Missy Misdemeanor Elliott* – Sock It 2 Me\
 $4 - Miranda - A La Fiesta\
 $10 - Mr. President – Coco Jamboo (The Remixes)\
 $3 - Mylo - In My Arms\
@@ -1443,6 +1455,7 @@ $5 - Shape UK – Back To Basics\
 $15 - Sinéad O'Connor - Troy (The Phoenix From The Flame) CD1\
 $15 - Sinéad O'Connor - Troy (The Phoenix From The Flame) CD2\
 $5 - SirMixAlot - Baby Got Back\
+$3 - Size 9 – I'm Ready\
 $5 - Snap! - Cult Of Snap\
 $5 - Snap! - Mary Had A Little Boy\
 $5 - Soft Cell vs Club 69 - Tainted Love\
@@ -1458,6 +1471,7 @@ $3 - Stretch 'N' Vern Present Maddog - Get Up Go Insane!\
 $3 - Stonebridge ft Therese - Put 'Em High\
 $125 - Solina / Jessica / Julia / Plutonium – Four Artist Maxi-Single II\
 $50 - Solina - Comeback To My Heart\
+$75 - Solina - I Wanna Know\
 $100 - Solina - Show Me Love Tonight\
 $150 - Solina - The Music Comes Alive\
 $20 - Sunkids Feat. Chance – Rise Up\
@@ -1492,6 +1506,7 @@ $5 - Toni Braxton – You're Makin Me High (Remix) / Let It Flow\
 $3 - Tony Di Bart - The Real Thing\
 $10 - Tori Amos – Jackie's Strength\
 $3 - Toy Box - Best Friend\
+$20 - Trace Adkins – Honky Tonk Badonkadonk (The Remixes)\
 $5 - Track 7 - I Wanna Funk\
 $20 - Troy Brown / PJ - Feel Alright / Happy Days\
 $5 - Tuttifrutti – Superboy (Boy Oy Oy)\
