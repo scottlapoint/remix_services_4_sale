@@ -944,12 +944,15 @@ $20 - A State of Trance Classics 14\
 -----------------------------------------------------------------------------------\
 CD ALBUMS\
 --------------------------------------------------------------------------------\
+
 $25 - David Guetta - One Love XXL (3cCD + DVD)\
+$5 - Deborah Cox – Remixed\
 $50 - Depeche Mode - Remixes 2. 81-11 (3xCD)
 $80 - Depeche Mode - Remixes 81···04 (3xCD)\
 $30 - Enigma - Best Of 3CD
 $10 - J.Lo - J To Tha L-O! (The Remixes)
 $5 - Pet Shop Boys - Introspective\
+$5 - Pizzaman – Pizzamania\
 $3 - Salt N Pepa - A Blitz Of Salt-N-Pepa Hits: The Hits Remixed\
 $5 - Village People - The Best Of Village People
 $10 - Kaskade - Fire & Ice (2xCD)\
@@ -971,6 +974,7 @@ $10 - Club Cutz Volume 8\
 $5 - Club House\
 $40 -  Back Spins Volume One\
 $15 - Dance Connection Vol. 1\
+$5 - Dance N-R-G Vol. 2 (2xCD)\
 $25 -  Dance Remakes - The Original Covers\
 $10 - Dance Revolution\
 $20 - Dee Jay's Choice Volume 1\
@@ -981,6 +985,8 @@ $20 - Dub House Disco & Dub House Disco 2000 (2xCD)
 $5 - Electric Dance Floor\
 $20 - Euro Hits 2006 (Tony Monaco)\
 $5 -  Hit 'N' Dance 1\
+$10 - Hed Kandi: Beach House 2010 (3xCD)\
+$20 - Hed Kandi: Disco Kandi (2xCD(\
 $30 - Italo Euro Hits 1 (Tony Monaco)\
 $30 - Italo Euro Hits 2 (Tony Monaco)\
 $5 - Massive Dance Hits\
@@ -994,13 +1000,15 @@ $15 - Rhythm Formula Anthems\
  $15 - Rhythm Formula Vol III - Discovery
 $10 - Rhythm Formula Vol Four - Essentials
 $25 - Rhythm Formula Vol. Five - Absolute\
-
 $20 - Sounds Of The City - Manchester\
+$5 - Wayne Williams – Strictly House Classics Volume II\
+
 $10 - The Countdown Singers - Ultimate 80s\
 $10 - This Beat Is Hot...The Compilation\
 $10 - The House Of Groove (Arista's Most Fierce Tracks)\
 $15 - Trance Divas 1 (2xCD)\ 
 $15 - Trance Divas 2 (2xCD)\ 
+$10 - Twisted Disco 02.04 (2xCD)\
 $5 - Ultimate Dance Divas\
 
 $5 - The Rhythm Method\
@@ -1010,6 +1018,8 @@ $25 - The Ultimate Trance Album (6xCD)\
 $15 - Ultimate Trance Remixed (2xCD)\ 
 $15 - Ultimate Trance Remixed (2xCD)\ 
 $15 - Wicked: Dance Pool Hits\
+$5 - Victor Calderone - E=VC2\
+
 
 
 
@@ -1020,6 +1030,7 @@ $4 - 2 Brothers On The 4th Floor Featuring Des'Ray And D-Rock – Dreams (Will C
 $3 - 2 Eivissa - Oh La La La\
 $4 - 2 Unlimited - Magic Friend / Megamix\
 $10 - 2 Unlimited – No Limit 2.3\
+$15 - 2 Unlimited – No One\
 $5 - 2 Unlimited - Tribal Dance 2.4\
 $3 - 20 Fingers feat Gilette - Short Dick Man\
 R15 - 4 Strings – Diving\
@@ -1029,6 +1040,7 @@ $5 - 49ers – I Got The Music Aka I Got It\
 $3 - A.D.A.M. - Zombie (Dance Version)\
 $5 - A Studio Feat. Polina - S.O.S. \
 $10 - Abbacadabra - Dancing Queen\
+$5 - Ace Of base - Beautiful Life\
 $10 - Ace Of Base - Cruel Summer (The Remixes)\
 $5 - Ace Of Base - Living In Danger\
 $10 - Ace of Base - Wheel Of Fortune\
@@ -1039,6 +1051,7 @@ $5 - Age of Love - The Age Of Love\
 $75 - Alexia - Number One & Summer Is Crazy\
 $10 - Ann Lee - Ring My bell (2xcd enhanced)\
 $10 - ATB – Don't Stop / 9PM Til I Come\
+$10 - ATB - Field Of Dreams\
 $5 - Axwell - Feel The Vibe\
 $25 - Alexia Phillips - You\
 $10 - Alice Deejay - Will I Ever\
@@ -1053,17 +1066,24 @@ $10 - Amber - This Is Your Night\
 $20 - Ame - Rej\
 $5 - Anastacia - I'm Outta Love\
 $20 - Andain - Beautiful Things\
+$3 - Angel City – Do You Know (I Go Crazy)\
+$5 - Angel City – Love Me Right (All Mixes)\
+$3 - Angel City - Sunrise\
+$10 - Annick Gagnon – I'm Temperamental\
 $5 - Annie Lennox – Pavement Cracks (The Remixes)\
 $10 - Aqua - Barbie Girl\
 $10 - Aqua - Roses Are Red\
 $10 - Aqua - My Oh My\
 $10 - Aqua - Lolipop (Candyman) / Doctor Jones\
 $5 - Armand Van Helden Presents Old School Junkies – The Funk Phenomena (Pt. 2)\
+$5 - ATB Feat. York – The Fields Of Love\
+$5 - Artie The 1 Man Party* – A Mover La Colita\
 $3 - Atrium - In Love With You\
 $5 - Axel F. – The Winner Takes It All '92\
 $5 - Axwell Feat. Steve Edwards – Watch The Sunrise\
 $5 - Azul Azul – La Bomba\
 $5 - Backstreet Boys – As Long As You Love Me / Quit Playing Games / Everybody (Remixes)\
+$5 - Backstreet Boys – Get Down (You're The One For Me)\
 $5 - Backstreet Boys – Everybody (Backstreet's Back)\
 $10 - Bass Bumpers Feat. E. Mello – Get The Big Bass\
 $20 - Basement Three / Cindy (3) / DJ Hush – Dum Dum / Crazy For You / It's A Fine Day\
@@ -1102,6 +1122,7 @@ $10 - Boy George - When Will You Learn\
 $5 - Byron Stingily - Get Up\
 $3 - Brandy & Monica - The Boy Is Mine\
 $3 - Bruce Wayne - Ready\
+$5 - BT Featuring M. Doughty* – Never Gonna Come Back Down (Remixes)\
 $3 - C + C Music Factory featuring Freedom Williams - Gonna Make You Sweat (Everybody Dance Now)\
 $10 - C + C Music Factory Featuring Freedom Williams – Things That Make You Go Hmmmm...\ 
 $10 - C + C Music Factory Featuring Freedom Williams – Things That Make You Go Hmmmm...\
@@ -1116,6 +1137,7 @@ $5 - Cathy Dennis – Just Another Dream\
 $10 - Caution Records - Multi Singles #5\
 $5 - Cartouche - Shame\
 $3 - Cascada – Everytime We Touch\
+$3 - Cascada – Everytime We Touch (2-4 Grooves Remix)\
 $60 - CeCe Peniston - Finally\
 $5 - Ce Ce Peniston – Lifetime To Love\
 $5 - Celine Dion* – My Heart Will Go On (Love Theme From 'Titanic') (Dance Mixes)\
@@ -1146,6 +1168,7 @@ $10 - Da Hool – Meet Her At The Love Parade 97-09\
 $25 - $3 - Day By Day - The Butt Dance Song\
 $25 - Daddy DJ - Daddy DJ\
 $4 - Daddy DJ - Over You\
+$15 - Daddy K – Voulez-Vous Coucher Avec Moi?\
 $10 - David Morales Pres The Face - Needin U II (2001 mixes)\
 $15 -  Dancelicious - Hot Dance Mixes (Beyonce / Solange / Lady Gaga)\
 $4 - Danzel - Pump It Up\
@@ -1157,8 +1180,10 @@ $5 - Deborah Cox – Nobody's Supposed To Be Here (The Dance Mixes)\
 $30 - Decoy & Roy - Inner Life\
 $10 - Denise Lopez – Don't You Wanna Be Mine\
 $10 - Dee Dee - The One\
+$100 - Deep Spirit - Lonely\
 $5 - Deep Dish - Flashdance\
 $3 - Delerium - Duende\
+$5 - Delerium Featuring Sarah McLachlan – Silence\
 $5 - Depeche Mode – Personal Jesus\
 $5 - DFS - Ou Eee Ou\
 $3 - Digital Rockers - Because I Love You\
@@ -1169,6 +1194,7 @@ $5 - DJ BoBo - Freedom\
 $5 - DJ BoBo - Pray\
 $10 - DJ BoBo - There's A Party\
 $5 - DJ Company – Hey Everybody (Out Of Control)\
+$10 - DJ Rene – Music All Over The World\
 $5 - DJ Sammy & William Hawk - Boyse of Summer & Sunrise\
 $3 - DJ Spin - Raise Em High\
 $10 - DJ Tiesto Featuring Nicola Hitchcock From Mandalay – In My Memory (Remixes)\
@@ -1183,6 +1209,7 @@ $10 - Dr. Alban - One Love\
 $10 - Dr. Alban - Sing Hallelujah!\
 $10 - Dr. Alban – Sing Hallelujah! (Remix)\
 $20 - Dr. Alban – Sing Hallelujah! (Recall 2004)\
+$10 - Dr. Motte & WestBam – Music Is The Key (Love Parade 99)\
 $20 - Echo Bass - Say Up And Down\
 $25 - Eddie Amador – House Music (Remixes)\
 $3 - Eiffel 65 - Move Your Body\
@@ -1200,6 +1227,7 @@ $3 - Faith Evans – Love Like This\
 $4 - Faithless – God Is A DJ\
 $20 - Finesse & Showbiz – Keep On Movin\
 $150 - First Base – The EP\
+$10 - Felix Featuring Jomanda – Don't You Want Me\
 $10 - Fonzerelli – Moonlight Party\
 $10 - Forcefield Ft. Gregory Jones – It's A Disco Night\
 $5 - FilterFunk – S.O.S. (Message In A Bottle)\
@@ -1212,6 +1240,7 @@ $10 - Fun Factory - I Wanna Be With You (Enhanced)\
 $5 - Fruit De La Passion – Tic Tic Tac\
 $30 - G-Spline Feat. Royce - I'm Gonna Party\
 $30 - Galleon - One Sign\
+$3 - Geri Halliwell – Mi Chico Latino (The Mixes)\
 $3 - Gina G - Ooh Aah... Just A Little Bit...\
 $20 - Gusgus - David\
 $3 - Gillette – Mr. Personality\
@@ -1224,6 +1253,7 @@ $5 - Haddaway - What Is Love Reloaded\
 $5 - Happy Nation - Girls Just Wanna Have Fun\
 $5 - Haiducii – Dragostea Din Tei\
 $5 - Hampton The Hampster - The Hampsterdance Song\
+$3 - Harajuku – Phantom Of The Opera (Techno House Remixes)\
 $3 - Happy Clappers - I Believe\
 $3 - Herbie - Right Type Of Mood\
 $3 - Herbie - Pick it Up\
@@ -1283,6 +1313,7 @@ $5 - Jocelyn Enriquez - Get Into The Rhythm\
 $5 - Jordy - Alison (C'Est Ma Copine a Moi!)\
 $5 - Jordy - Dur Dur D'etre Bebe!\
 $3 - Jump & Joy - Let's Roll (I dee It)\
+$5 - Kaci – I Think I Love You (Almighty Mixes)\
 $4 - Karaja – She Moves (La La La)\
 $20 - Katalina - DJ Girl\
 $150 - Katie Emme - Shake Your Love\
@@ -1292,6 +1323,7 @@ $3 - K.W.S. – Rock Your Baby\
 $5 - Kelly Clarkson – Low / Miss Independant\
 $15 - Kelly Llorenna - Tell It To My Heart\
 $3 - Kelly Llorenna - This Time I Know It's For Real\
+$70 - Kim Esty – You Got Me Movin' The Widelife Mixes\
 $3 - Kim Sozzi – Break Up (Cascada Remix)\
 $5 - King Lion – I Love The Melody\
 $10 - Klubbheads – Klubbheads Only! (The Best Of EP)\
@@ -1305,6 +1337,7 @@ $5 - La Cream - Say Goodbye\
 $15 - La Cream - You\
 $15 - Lady GaGa - Just Dance (The Remixes)\
 $10 - Lady Sovereign Feat. Missy Elliott – Love Me Or Hate Me\
+$20 - Red Velvet – Lady Don't Cry\
 $20 - Lasgo - Alone\
 $20 - Lasgo - Alone Remix\
 $20 - Lasgo - Hold Me Now (Thompson Twins Remake)\
@@ -1315,6 +1348,7 @@ $20 - Laura Branigan – Gloria 2004\
 $5 - Lara Fabian - I Will Love Again\
 $5 - Lauren Hildebrandt – Burnin Out\
 $10 - LeAnn Rimes – And It Feels Like / Strong - Remixes\
+$3 - Len – Steal My Sunshine\
 $4 - Los Del Rio – Macarena (Bass Bumpers Remix)\
 $100 - Lia - Private Fantasy\
 $5 - Lidell Townsell - Nu Nu\
@@ -1333,6 +1367,7 @@ $40 - Manico, F.B. Machine – Dance - Make Me Feel Alright\
 $5 - Marc Et Claude – I Need Your Lovin' (Like The Sunshine)\
 $3 - Marco Denmark - Tiny Dancer - EP\
 $20 - Mariah Carey - Emotions\
+$10 - Mariah Carey - Heartbreaker\
 $6 - Mariah Carey - Fantasy\
 $20 - Mariah Carey - It's Like That\
 $20 - Mariah Carey - Make It Happen\
@@ -1346,19 +1381,25 @@ $5 - Maxx - No More (I Can't Stand It)\
 $3 - Me & My – Dub-I-Dub\
 $10 - Meck ft Dino - Feels Like Home\
 $50 - Melanie Bender – You Just Want Sex\
+$3 - Michael Bolton – Go The Distance\
 $15 - Michael Mind Feat. Manfred Mann's Earth Band – Blinded By The Light\
 $10 - Michael Jackson – Black Or White (The Clivillés & Cole (C&C) Remixes)\
 $5 - Michael Gray feat SHelly Pole - Borderline\
 $4 - Michael Gray Feat. Steve Edwards – Somewhere Beyond\
 $10 - Michael Woods Feat. Imogen Bailey – If U Want Me\
 $10 - Michelle Branch - Breathe\
+$3 - Mims – Like This\
 $3 - Miranda - Vamos A La Playa\
 $5 - Missy Elliott – 4 My People\
 $5 - Missy Misdemeanor Elliott* – Sock It 2 Me\
 $4 - Miranda - A La Fiesta\
+$5 - Montell Jordan – This Is How We Do It\
+$5 - Molella Feat. The Outhere Brothers – If You Wanna Party\
+$10 - More - Around The World\
 $10 - Mr. President – Coco Jamboo (The Remixes)\
 $3 - Mylo - In My Arms\
 $10 - MTS - I'll Be Alright\
+$3 - N-Trance - Paradise City\
 $10 - N-Trance / France Joli / Sunscreem / Porn Kings – Disco / Breakaway / Catch / Amour (Four Artist maxi Single)\
 $100 - Nadia - Live On Love\
 $5 - Naliin & Kane - Beachball\
@@ -1372,6 +1413,7 @@ $4 - Next Block Feat. Moktar – Give You My Love\
 $4 - Nicki French – Total Eclipse Of The Heart\
 $10 - Noemi - When Angels Kiss\
 $5 - Novy Vs Eniac – Pumpin...\
+$5 - NSync - I Want You back\
 $5 - Papaya - hero\
 $10 - Paris - Turn It Up\
 $5 - PAK! Feat. Rodney – Party On Go!\
@@ -1392,6 +1434,7 @@ $75 - Pet Shop Boys - Home And Dry Remixes\\
 $20 - Pet Shop Boys - New Your City Boy\
 $4 - Peter Andre – All About Us\
 $3 - Peter Gelderblom – Waiting 4\
+$20 - PJ - Happy Days\
 $5 - PJ - Move Ya Feet\
 $5 - Playahitty - 1 2 3 Train With Me\
 $20 - Playahitty - The Summer Is Magic\
@@ -1405,6 +1448,7 @@ $10 - Reality - Yolanda\
 $15 - Reel 2 Real Featuring Proyecto Uno – Mueve La Cadera (Move Your Body)\
 $5 - Reel 2 Real Featuring The Mad Stuntman – Can You Feel It?\
 $10 - Reel 2 Real Featuring The Mad Stuntman – Conway\
+$5 - Reel 2 Real Featuring The Mad Stuntman – Conway (Positiva)\
 $5 - Reel 2 Real Featuring The Mad Stuntman – Go On Move\
 $5 - Reel 2 Real Featuring The Mad Stuntman  - I Like To Move It (UK Mixes)\
 $3 - Reel 2 Real Featuring The Mad Stuntman - Jazz It Up\
@@ -1435,7 +1479,9 @@ $3 - Salt 'N' Pepa - R U Ready\
 $5 - Salt 'N' Pepa - Start Me Up\
 $10 - Sam Mollison – Will You Love Me In The Morning\
 $10 - Sandy - Bad Boy\
+$3 - Santana – Maria Maria\
 $5 - Sarah Washington - I Will Always Love You (Dance Mix)
+$10 - Sasha Alexander – Let Me Be The One\
 $3 - Scooter - Fire
 $5 - Scooter - Shake That\
 $5 - Seal – Get It Together\
@@ -1452,6 +1498,8 @@ $5 - Sharam – P.A.T.T. (Party All The Time)\
 $10 - Shauna Davis - Into You\
 $10 - Shauna Davis - Try My Love\
 $5 - Shape UK – Back To Basics\
+$75 - Silvana Mior – Love You For Life / Only Imagination\
+$5 - Shaft – (Mucho Mambo) Sway\
 $15 - Sinéad O'Connor - Troy (The Phoenix From The Flame) CD1\
 $15 - Sinéad O'Connor - Troy (The Phoenix From The Flame) CD2\
 $5 - SirMixAlot - Baby Got Back\
@@ -1474,8 +1522,11 @@ $50 - Solina - Comeback To My Heart\
 $75 - Solina - I Wanna Know\
 $100 - Solina - Show Me Love Tonight\
 $150 - Solina - The Music Comes Alive\
+$5 - Soul Solution - All Around The World\
+$3 - Sugar Jones – Days Like That\
 $20 - Sunkids Feat. Chance – Rise Up\
 $5 - Sunloverz – Shine On\
+$20 - SoundBluntz - Maybe You'll Get Lucky\
 $5 - SoundFactory - Good Time\
 $10 - Supermode - Tell Me Why\
 $10 - Sweetbox - Booyah Here We Go\
@@ -1492,7 +1543,10 @@ $10 - The Boogie Pimps - Somebody To Love\
 $5 - The Boomshakers - Boom Shake The Room (Dance Mix)\
 $3 - The Boomtang Boys – Squeeze Toy / Popcorn\
 $10 - The Kromozone Project - Take My Love\
+$5 - The Love Bite - Take Your Time\
+$5 - The Notorious B.I.G. Featuring Puff Daddy & Mase – Mo Money Mo Problems\
 $5 - The Offspring - Pretty Fly For A White Guy\
+$5 - The Outhere Brothers - Ae Ah\
 $3 - The Outhere brothers - Boom Boom Boom\
 $10 - The Outhere Brothers vs. DJ Sputnik – Boom Boom Boom\
 $5 - The Outhere Brothers – Don't Stop (Wiggle, Wiggle) / La La La Hey Hey\
@@ -1500,6 +1554,9 @@ $10 - The Pussycat Dolls Feat. Busta Rhymes - Don't Cha (Remixes)\
 $5 - The Shapeshifters - Incredible
 $3 - The Underdog Project - Summerjam 2003\
 $10 - Tira Black - Play With Me / Push It In \
+$15 Toni Braxton - Pulse The Remixes Part 1\
+$15 Toni Braxton - Pulse The Remixes Part 2\
+$15 Toni Braxton - Pulse The Remixes Part 3\
 $5 - Toni Braxton - I Don't Want To / I Love Me Some Him
 $25 - Toni Braxton – The Remixes (Part 2)\
 $5 - Toni Braxton – You're Makin Me High (Remix) / Let It Flow\
@@ -1509,8 +1566,11 @@ $3 - Toy Box - Best Friend\
 $20 - Trace Adkins – Honky Tonk Badonkadonk (The Remixes)\
 $5 - Track 7 - I Wanna Funk\
 $20 - Troy Brown / PJ - Feel Alright / Happy Days\
+$10 - Turtle Mix – No Nagging Anymore\
 $5 - Tuttifrutti – Superboy (Boy Oy Oy)\
+$5 - TV Rock - Bimbo Nation\
 $5 - TV Rock - Flaunt It\
+$15 - Uniting Nations – Out Of Touch\
 $3 - Urban Cookie Collective – Feels Like Heaven\
 $5 - Utah Saints - Something Good 98\
 $15 - Ultra – Automatic (2008 Remixes)\
@@ -1519,6 +1579,7 @@ $5 - Vengaboys - Boom Boom Boom Boom\
 $5 - Vengaboys – Uncle John From Jamaica\
 $10 - Vengaboys - Up and Down\
 $5 - Vengaboys – We Like To Party! (The Vengabus)\
+$10 - Vengaboys - We're Going To Ibiza\
 $5 - Waldos People - Drive Me Crazy\
 $5 - Underworld - Born Slippy Nuxx\
 $10 - Unique II - Break My Stride\
@@ -1540,6 +1601,7 @@ $4 - Who's That Girl - Holiday\
 $15 - Wynter Gordon - Dirty Talk (The Remixes)\
 $40 - Various – Multi Singles #2\
 $175 - Various - Multi Singles #4\
+$10 - X-Kameron – Why Don't You Want My Love\
 $10 - Yaz - Don't Go / Situation (1999 mixes)\
 $10 - Zippora - See The Sun\
 $10 - Ziporra - What About U\
