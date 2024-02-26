@@ -962,19 +962,31 @@ $10 - Kaskade - Fire & Ice (2xCD)\
 -----------------------------------------------------------------------------------\
 CD COMPILATIONS (VARIOUS ARTISTS)\
 --------------------------------------------------------------------------------\
-$65 - 30 Dance Divas (2xCD)\
 $5 - 12 Maxi Dance Hits\
+$65 - 30 Dance Divas (2xCD)\
+$10 - 80's Dance Party 1 2 3 / Energy 4 the 90s (4xCD)
 $20 - All-Time Classic Hits\
+$5 - Azuli Presents Miami 10 (Unmixed For DJ's Only)\
+$5 - bpm:tv Takin' It To The Streets\
+$40 -  Back Spins Volume One\
 $15 - Chris Sheppard - Chris Sheppard's Club Cutz 101
+$15 - CLub Elements\
 $15 - Club Culture Volume 1\
 $5 - Club Cutz Volume 3\
 $10 - Club Cutz Volume 6\
 $10 - Club Cutz Volume 7\
 $10 - Club Cutz Volume 8\
+$30 - Club Hits 97 (12" Extended Versions) (4xCD)\
 $5 - Club House\
-$40 -  Back Spins Volume One\
+$10 - Cr2 Club Classics (3xCD)\
+$10 - Cr2 Unmixed: Volume 002 (3xCD)\
+$15 - Da Grooves\
 $15 - Dance Connection Vol. 1\
+$10 - Dancin Divas\
+$5 - Dance World - Volume One - The Best Dance Music From Around The World\
 $5 - Dance N-R-G Vol. 2 (2xCD)\
+$30 - D:Vision Club Session 37 - Miami 2014 (2xCD)
+$30 - D:Vision Club Session 38 (2xCD)\
 $25 -  Dance Remakes - The Original Covers\
 $10 - Dance Revolution\
 $20 - Dee Jay's Choice Volume 1\
@@ -989,6 +1001,7 @@ $10 - Hed Kandi: Beach House 2010 (3xCD)\
 $20 - Hed Kandi: Disco Kandi (2xCD(\
 $30 - Italo Euro Hits 1 (Tony Monaco)\
 $30 - Italo Euro Hits 2 (Tony Monaco)\
+$10 - Los Cuarenta Vol.2 Unmixed (2xCD)\
 $5 - Massive Dance Hits\
 $80 - Oh What A Feeling (A Vital Collection Of Canadian Music) Vol 1 (4xCD)\
 $20 - Oh What A Feeling (A Vital Collection Of Canadian Music) Vol 2 (4xCD)\
@@ -996,13 +1009,14 @@ $60 - Oh What A Feeling (A Vital Collection Of Canadian Music) Vol 3 (4xCD)\
 $5 - Party Mix\
 $10 - Pure Energy\
 $20 -  Promo Only - J.C. Music Danse Compilation 2001/6\
+$10 - Recharge - New Music From RCA\
 $15 - Rhythm Formula Anthems\
  $15 - Rhythm Formula Vol III - Discovery
 $10 - Rhythm Formula Vol Four - Essentials
 $25 - Rhythm Formula Vol. Five - Absolute\
 $20 - Sounds Of The City - Manchester\
 $5 - Wayne Williams – Strictly House Classics Volume II\
-
+$10 - Suburbia Unmixed 26\
 $10 - The Countdown Singers - Ultimate 80s\
 $10 - This Beat Is Hot...The Compilation\
 $10 - The House Of Groove (Arista's Most Fierce Tracks)\
@@ -1019,6 +1033,7 @@ $15 - Ultimate Trance Remixed (2xCD)\
 $15 - Ultimate Trance Remixed (2xCD)\ 
 $15 - Wicked: Dance Pool Hits\
 $5 - Victor Calderone - E=VC2\
+$10 - Xtended Xplicit\
 
 
 
@@ -1120,6 +1135,7 @@ $5 - Britney Spears - (You Drive Me) Crazy (The Stop Remix)\
 $3 - Bob Marley vs. Funkstar De Luxe - Rainbow Country (Remix)\
 $10 - Boy George - When Will You Learn\
 $5 - Byron Stingily - Get Up\
+$15 - Brandy Feat. Kanye West – Talk About Our Love\
 $3 - Brandy & Monica - The Boy Is Mine\
 $3 - Bruce Wayne - Ready\
 $5 - BT Featuring M. Doughty* – Never Gonna Come Back Down (Remixes)\
@@ -1135,12 +1151,14 @@ $225 - Capital Sound - Desire\
 $100 - Capital Sound - Your Love Is My Energy\
 $5 - Cathy Dennis – Just Another Dream\
 $10 - Caution Records - Multi Singles #5\
+$Carlos Morgan - We're Gonna Make It \
 $5 - Cartouche - Shame\
 $3 - Cascada – Everytime We Touch\
 $3 - Cascada – Everytime We Touch (2-4 Grooves Remix)\
 $60 - CeCe Peniston - Finally\
 $5 - Ce Ce Peniston – Lifetime To Love\
 $5 - Celine Dion* – My Heart Will Go On (Love Theme From 'Titanic') (Dance Mixes)\
+$3 - Chris Lake feat. Laura V – Changes\
 $5 - Charles & Eddie – Would I Lie To You?\
 $5 - Chocolate Puma – Always And Forever\
 $5 - Cher - All Or Nothing / Dov'e L'Amore\
@@ -1210,7 +1228,9 @@ $10 - Dr. Alban - Sing Hallelujah!\
 $10 - Dr. Alban – Sing Hallelujah! (Remix)\
 $20 - Dr. Alban – Sing Hallelujah! (Recall 2004)\
 $10 - Dr. Motte & WestBam – Music Is The Key (Love Parade 99)\
+$50 - E-Cube - Easy\
 $20 - Echo Bass - Say Up And Down\
+$3 - Eclipse - Makes Me Love You \
 $25 - Eddie Amador – House Music (Remixes)\
 $3 - Eiffel 65 - Move Your Body\
 $5 - Eiffel 65 - Lucky\
@@ -1237,6 +1257,7 @@ $3 - Fragma - You Are Alive\
 $3 - Freestylers - In Love With You\
 $3 - Fugees (Refugee Camp)* – Ready Or Not\
 $10 - Fun Factory - I Wanna Be With You (Enhanced)\
+$10 - Fused - Saving Mary (includes acapella)\
 $5 - Fruit De La Passion – Tic Tic Tac\
 $30 - G-Spline Feat. Royce - I'm Gonna Party\
 $30 - Galleon - One Sign\
@@ -1283,6 +1304,7 @@ $5 - James Brown – Can't Get Any Harder (C&C Remix)\
 $3 - JD & Mariah Carey - Sweetheart\
 $10 - J.K. - My Radio\
 $10 - J.K. – You & I / Beat It \
+$10 - J. Kristoff – Thunder\
 $5 - Jakatta Featuring Seal – My Vision\
 $5 - Janet Jackson - Escapade (House Mix)\
 $15 - Janet Jackson Remixed\
@@ -1297,6 +1319,7 @@ $5 - Jessica Simpson – This Is The Remix\
 $5 - Jet Fuel Featuring Rob Base & DJ E-Z Rock – Take This Party Higher\
 $5 - Jennifer - Da-dee-da\
 $3 - Jennifer Lopez - If You Had My Love\
+$3 - Jennifer Lopez - I'm Real\
 $3 - Jennifer Lopez - Let's Get Loud\
 $10 - Jessie And The Toy Boys Featuring Yelawolf – Push It (The Remixes)\
 $10 - Jewel – Intuition\
@@ -1324,6 +1347,7 @@ $5 - Kelly Clarkson – Low / Miss Independant\
 $15 - Kelly Llorenna - Tell It To My Heart\
 $3 - Kelly Llorenna - This Time I Know It's For Real\
 $70 - Kim Esty – You Got Me Movin' The Widelife Mixes\
+$5 - Kim Lukas – All I Really Want\
 $3 - Kim Sozzi – Break Up (Cascada Remix)\
 $5 - King Lion – I Love The Melody\
 $10 - Klubbheads – Klubbheads Only! (The Best Of EP)\
@@ -1355,6 +1379,7 @@ $5 - Lidell Townsell - Nu Nu\
 $10 - Lil' Kim – Dance Remixes (Lighters Up / Woah / Big Momma Thang / Queen B)\
 $4 - Lil' Kim Feat Mr. Cheeks – The Jump Off\
 $5 - Lil Mama Featuring Chris Brown And T-Pain – Shawty Get Loose (Dance Remixes)\
+$10 - Lionel Richie – Just For You\
 $10 - LL Cool J - Mama Said Knock You out\
 $4 - Loft - Hold On\
 $10 - Lost Witness - Home\
@@ -1373,11 +1398,14 @@ $20 - Mariah Carey - It's Like That\
 $20 - Mariah Carey - Make It Happen\
 $5 - Marly - You Never Know\
 $5 - Mary Kiani - 100%\
+$40 - Marz Vs. Musique – Push, Push, In The Bush\
 $4 - Masterboy - Feel The Heat Of The Night (Remixes)\
 $4 - Masterboy - I Got To Give It Up\
+$5 - Maestro Fresh-Wes – 416/905 (T.O. Party Anthem)\
 $5 - Max-A-Million - Everybody's Groovin\
 $5 - Maxx – Get-A-Way (Remixes Incl. General Base Remixes)\
 $5 - Maxx - No More (I Can't Stand It)\
+$10 - MC Mario Featuring Nancy Martinez – Not Guilty\
 $3 - Me & My – Dub-I-Dub\
 $10 - Meck ft Dino - Feels Like Home\
 $50 - Melanie Bender – You Just Want Sex\
@@ -1396,6 +1424,7 @@ $4 - Miranda - A La Fiesta\
 $5 - Montell Jordan – This Is How We Do It\
 $5 - Molella Feat. The Outhere Brothers – If You Wanna Party\
 $10 - More - Around The World\
+$50 - M People - Testify (Remixes)\
 $10 - Mr. President – Coco Jamboo (The Remixes)\
 $3 - Mylo - In My Arms\
 $10 - MTS - I'll Be Alright\
@@ -1418,6 +1447,7 @@ $5 - Papaya - hero\
 $10 - Paris - Turn It Up\
 $5 - PAK! Feat. Rodney – Party On Go!\
 $5 - Prozzak - Hot Tracks\
+$10 - ODB featuring Insane Clown Posse – The New Single: Dirty And Stinkin\
 $5 - One Track Mind – I Like U\
 $10 - Offer Nissim Feat. Maya – Be My Boyfriend\
 $20 - Offer Nissim Feat Maya – First Time\
@@ -1459,6 +1489,7 @@ $5 - Real McCoy - It's On You\
 $5 - Real McCoy - Love & Devotion\
 $5 - Real McCoy – One More Time (The Remixes)\
 $5 - Real McCoy - Run Away\
+$3 - Ricky Martin – Livin' La Vida Loca (Remixes)\
 $5 - Richard Grey – Tainted Love (Warped Bass)\
 $15 - Rick Astley - 12" Collection\
 $5 - Right Said Fred - Don't Talk Just Kiss\
@@ -1510,6 +1541,7 @@ $5 - Soft Cell vs Club 69 - Tainted Love\
 $40 - soulDecision – Cadillac Dress\
 $4 - Soulsearcher - Can't Get Enough\
 $5 - Soul Seekerz – Party For The Weekend\
+$50 - Sound of Pink - Everybody Knows\
 $25 - Stacy Earl – Love Me All Up\
 $50 - Starclub Feat. Dr. Alban – Chiki Chiki\
 $15 - Stardust - Music Sounds Better With You\
@@ -1527,10 +1559,12 @@ $3 - Sugar Jones – Days Like That\
 $20 - Sunkids Feat. Chance – Rise Up\
 $5 - Sunloverz – Shine On\
 $20 - SoundBluntz - Maybe You'll Get Lucky\
+$50 - Sounds of Pink - Everybody Knows\
 $5 - SoundFactory - Good Time\
 $10 - Supermode - Tell Me Why\
 $10 - Sweetbox - Booyah Here We Go\
 $3 - Strike – My Love Is For Real\
+$5 - Sugar Daddy - Sweet Soca Music\
 $4 - Sylver - Forever In Love\
 $60 - Sylver – Forgiven & Skin\
 $60 - Sylver - Why Worry\
@@ -1598,6 +1632,7 @@ $5 - Whitney Houston - I'm Every Woman (C&C Remixes)\
 $10 - Whitney Houston – Step By Step (The Remixes)\
 $5 - Whitney Houston – My Love Is Your Love\
 $4 - Who's That Girl - Holiday\
+$3 - Will Smith – Miami\
 $15 - Wynter Gordon - Dirty Talk (The Remixes)\
 $40 - Various – Multi Singles #2\
 $175 - Various - Multi Singles #4\
