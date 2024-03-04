@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Feb 21, 2024)
+Hello DJ World! - (Last updated Mar 4, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -945,16 +945,35 @@ $20 - A State of Trance Classics 14\
 CD ALBUMS\
 --------------------------------------------------------------------------------\
 
+$10 - ATB – Distant Earth (2xCD)\
+$20 - Armin van Buuren – Intense - The More Intense Edition (2xCD)\
+$10 - Armin van Buuren – Mirage - The Remixes (2xCD)\
+$10 - Armin van Buuren – Imagine - The Remixes (2xCD)\
+$3 - Benassi Bros. – Pumphonia\
+$5 - Benny Benassi - Re-Sfaction\
+$5 - Black Box – Mixed Up!\
+$3 - Bryan Adams – So Far So Good\
+$5 - Boney M. 2000* – 20th Century Hits\
+$5 - Crystal Waters – The Best Of Crystal Waters\
 $25 - David Guetta - One Love XXL (3cCD + DVD)\
 $5 - Deborah Cox – Remixed\
 $50 - Depeche Mode - Remixes 2. 81-11 (3xCD)
 $80 - Depeche Mode - Remixes 81···04 (3xCD)\
-$30 - Enigma - Best Of 3CD
-$10 - J.Lo - J To Tha L-O! (The Remixes)
+$30 - Enigma - Best Of 3CD\
+$3 - INXS – The Greatest Hits\
+$10 - J.Lo - J To Tha L-O! (The Remixes)\
+$5 - Londonbeat – Best! The Singles\
+$5 - New Kids On The Block – No More Games (The Remix Album)\
+$10 - MC Sar & The Real MxCoy - Space Invaders\
 $5 - Pet Shop Boys - Introspective\
 $5 - Pizzaman – Pizzamania\
+$3 - Rednex – Sex & Violins\
+$10 - Rihanna – Good Girl Gone Bad Deluxe Edition (2xCD)\
+$5 - Sarah McLachlan – Remixed\
 $3 - Salt N Pepa - A Blitz Of Salt-N-Pepa Hits: The Hits Remixed\
-$5 - Village People - The Best Of Village People
+$5 - Snap! – Snap! Attack - The Remixes\
+$10 - Tiësto – Kaleidoscope Remixed\
+$5 - Village People - The Best Of Village People\
 $10 - Kaskade - Fire & Ice (2xCD)\
 
 
@@ -969,20 +988,33 @@ $20 - All-Time Classic Hits\
 $5 - Azuli Presents Miami 10 (Unmixed For DJ's Only)\
 $5 - bpm:tv Takin' It To The Streets\
 $40 -  Back Spins Volume One\
-$15 - Chris Sheppard - Chris Sheppard's Club Cutz 101
+$5 - Blanco Y Negro Hits 11-09\
+$5 - Blanco Y Negro Hits 11-10\
+$20 - Capital Records - B.U.D. Special Edition #3\
+$15 - Chris Sheppard - Chris Sheppard's Club Cutz 101\
+$10 -  Club Azuli Ibiza 2007 (Unmixed DJ Format) (2xCD)\
 $15 - CLub Elements\
 $15 - Club Culture Volume 1\
 $5 - Club Cutz Volume 3\
 $10 - Club Cutz Volume 6\
 $10 - Club Cutz Volume 7\
 $10 - Club Cutz Volume 8\
+$5 - CLub Euro 1\
+$5 - Club Euro 2\
+$5 - Club Euro 3\
+$10 - Club Europe - Pure Dance Chart Material Vol. 1 (2xCD)\
 $30 - Club Hits 97 (12" Extended Versions) (4xCD)\
 $5 - Club House\
 $10 - Cr2 Club Classics (3xCD)\
 $10 - Cr2 Unmixed: Volume 002 (3xCD)\
 $15 - Da Grooves\
 $15 - Dance Connection Vol. 1\
+$25 - Dance Classics - New Jack Swing Vol 1 (2xCD\
 $10 - Dancin Divas\
+$10 - Dance Pool 1\
+$10 - Dance Pool 2\
+$10 - Dance Pool 3\
+$10 - Dance Pool 4\
 $5 - Dance World - Volume One - The Best Dance Music From Around The World\
 $5 - Dance N-R-G Vol. 2 (2xCD)\
 $30 - D:Vision Club Session 37 - Miami 2014 (2xCD)
@@ -996,43 +1028,67 @@ $10 - Do It Again: The Best Of Famous Cover Hits (2xCD)\
 $20 - Dub House Disco & Dub House Disco 2000 (2xCD)
 $5 - Electric Dance Floor\
 $20 - Euro Hits 2006 (Tony Monaco)\
+$5 -  Euro Dance Pool Volume 1\
+$5 -  Euro Dance Pool Volume 2\
+$10 - Eurotic Dance\
+$10 - Eurotic 2\
+$10 - Fierce Angel - Fierce Disco II (3xCD)\
 $5 -  Hit 'N' Dance 1\
 $10 - Hed Kandi: Beach House 2010 (3xCD)\
 $20 - Hed Kandi: Disco Kandi (2xCD(\
+$5 -  House Anthems 07/08 (2xCD)\
 $30 - Italo Euro Hits 1 (Tony Monaco)\
 $30 - Italo Euro Hits 2 (Tony Monaco)\
+$5 - Living In Oblivion 1\
+$5 - Living In Oblivion 2\
+$5 - Living In Oblivion 3\
+$5 - Living In Oblivion 4\
+$5 - Living In Oblivion 5\
 $10 - Los Cuarenta Vol.2 Unmixed (2xCD)\
 $5 - Massive Dance Hits\
+$5 - Now That's What I Call Club Hits 2\
 $80 - Oh What A Feeling (A Vital Collection Of Canadian Music) Vol 1 (4xCD)\
 $20 - Oh What A Feeling (A Vital Collection Of Canadian Music) Vol 2 (4xCD)\
 $60 - Oh What A Feeling (A Vital Collection Of Canadian Music) Vol 3 (4xCD)\
 $5 - Party Mix\
 $10 - Pure Energy\
-$20 -  Promo Only - J.C. Music Danse Compilation 2001/6\
+$20 - Promo Only - J.C. Music Danse Compilation 2001/6\
+$10 - Rap Traxx 5\
 $10 - Recharge - New Music From RCA\
+$3 -  Red Hot + Dance\
 $15 - Rhythm Formula Anthems\
  $15 - Rhythm Formula Vol III - Discovery
 $10 - Rhythm Formula Vol Four - Essentials
 $25 - Rhythm Formula Vol. Five - Absolute\
+$5 - Singles - #1 Club Remixes\
 $20 - Sounds Of The City - Manchester\
-$5 - Wayne Williams – Strictly House Classics Volume II\
+$5 - Strictly Rhythm - Deadly Grooves - Strictly The Best\
+$5 - Strictly Rhythm - The Deadly Grooves\
+$10 - Strictly Rhythm (Collector's Edition) (2xCD)\
+$20 - Strictly Todd Terry (Unmixed DJ Format) (3xCD)\
+$5 - Try This '06 The Mix Tape\
 $10 - Suburbia Unmixed 26\
-$10 - The Countdown Singers - Ultimate 80s\
 $10 - This Beat Is Hot...The Compilation\
+$5 - The Best Dance Album Ever! (2xCD)\
 $10 - The House Of Groove (Arista's Most Fierce Tracks)\
+$30 - The Politics Of Dancin\
 $15 - Trance Divas 1 (2xCD)\ 
 $15 - Trance Divas 2 (2xCD)\ 
 $10 - Twisted Disco 02.04 (2xCD)\
 $5 - Ultimate Dance Divas\
-
+$5 - Wayne Williams – Strictly House Classics Volume II\
+$5 - The Best Dance Album Ever! (2xCD)\
 $5 - The Rhythm Method\
 $5 - The Rhythm Method 2\
 $25 - The Hard House Album Vol 1 (2xCD)
+$15 - The Best Long Versions Ever! Vol. 2\
 $25 - The Ultimate Trance Album (6xCD)\
 $15 - Ultimate Trance Remixed (2xCD)\ 
 $15 - Ultimate Trance Remixed (2xCD)\ 
 $15 - Wicked: Dance Pool Hits\
 $5 - Victor Calderone - E=VC2\
+$10 -  Warehouse Grooves Volume 3 (2xCD)\
+$10 - Warner -  Dance Disc - Vol. 26\
 $10 - Xtended Xplicit\
 
 
@@ -1353,6 +1409,7 @@ $5 - King Lion – I Love The Melody\
 $10 - Klubbheads – Klubbheads Only! (The Best Of EP)\
 $5 - Klubbheads – Klubbhopping\
 $5 - Kraftykuts & Tim Deluxe – Bass Phenomenon\
+$5 - KMC feat Sandy - Get Better\
 $5 - KMC feat Dhany - I Feel So Fine\
 $5 - Kris Kross - Jump (Remixes)\
 $175 - Kylie - In Your Eyes\
