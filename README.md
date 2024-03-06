@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Mar 4, 2024)
+Hello DJ World! - (Last updated Mar 6, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -944,7 +944,7 @@ $20 - A State of Trance Classics 14\
 -----------------------------------------------------------------------------------\
 CD ALBUMS\
 --------------------------------------------------------------------------------\
-
+$5 - Alexandra Stan – Saxobeats\
 $10 - ATB – Distant Earth (2xCD)\
 $20 - Armin van Buuren – Intense - The More Intense Edition (2xCD)\
 $10 - Armin van Buuren – Mirage - The Remixes (2xCD)\
@@ -955,19 +955,29 @@ $5 - Black Box – Mixed Up!\
 $3 - Bryan Adams – So Far So Good\
 $5 - Boney M. 2000* – 20th Century Hits\
 $5 - Crystal Waters – The Best Of Crystal Waters\
+$5 - Daft Punk - Homework\
 $25 - David Guetta - One Love XXL (3cCD + DVD)\
+$5 - deadmau5 – At Play\
+$5 - deadmau5 – At Play 2\
 $5 - Deborah Cox – Remixed\
 $50 - Depeche Mode - Remixes 2. 81-11 (3xCD)
 $80 - Depeche Mode - Remixes 81···04 (3xCD)\
 $30 - Enigma - Best Of 3CD\
+$3 - Fleetwood Mac – Greatest Hits\
 $3 - INXS – The Greatest Hits\
+$5 - Janet Jackson – Design Of A Decade 1986 / 1996\
+$5 - Jason Nevins - Universal\
 $10 - J.Lo - J To Tha L-O! (The Remixes)\
+$10 - Kylie Minogue – Body Language (2xCD)\
+$10 - Kylie* – Greatest Hits 87-97 (2xCD)\
 $5 - Londonbeat – Best! The Singles\
+$10 - Mariah Carey – The Remixes (2xCD)\
 $5 - New Kids On The Block – No More Games (The Remix Album)\
 $10 - MC Sar & The Real MxCoy - Space Invaders\
 $5 - Pet Shop Boys - Introspective\
 $5 - Pizzaman – Pizzamania\
 $3 - Rednex – Sex & Violins\
+$3 - Roxette - Look Sharp\
 $10 - Rihanna – Good Girl Gone Bad Deluxe Edition (2xCD)\
 $5 - Sarah McLachlan – Remixed\
 $3 - Salt N Pepa - A Blitz Of Salt-N-Pepa Hits: The Hits Remixed\
@@ -1032,6 +1042,7 @@ $5 -  Euro Dance Pool Volume 1\
 $5 -  Euro Dance Pool Volume 2\
 $10 - Eurotic Dance\
 $10 - Eurotic 2\
+$15 -  Fantastic 80s! Extended (2xCD)\
 $10 - Fierce Angel - Fierce Disco II (3xCD)\
 $5 -  Hit 'N' Dance 1\
 $10 - Hed Kandi: Beach House 2010 (3xCD)\
@@ -1046,6 +1057,7 @@ $5 - Living In Oblivion 4\
 $5 - Living In Oblivion 5\
 $10 - Los Cuarenta Vol.2 Unmixed (2xCD)\
 $5 - Massive Dance Hits\
+$15 - Massive Hits! 80s Remix (3xCD)\
 $5 - Now That's What I Call Club Hits 2\
 $80 - Oh What A Feeling (A Vital Collection Of Canadian Music) Vol 1 (4xCD)\
 $20 - Oh What A Feeling (A Vital Collection Of Canadian Music) Vol 2 (4xCD)\
@@ -2157,4 +2169,3 @@ $8 - Soul Solution - Don't Ask Why (2x12") (ToTo Remix)
 $5 - Kris Kross - Alright
 $5 - Thalia / Sean Paul/ Snow - Dance Dance / Get Busy / Whass Up
 $5 - Lisa Lougheed - Love Vibe
- b `./;	3	  
