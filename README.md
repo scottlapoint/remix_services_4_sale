@@ -983,9 +983,11 @@ $5 - Sarah McLachlan – Remixed\
 $3 - Salt N Pepa - A Blitz Of Salt-N-Pepa Hits: The Hits Remixed\
 $5 - Snap! – Snap! Attack - The Remixes\
 $10 - Tiësto – Kaleidoscope Remixed\
+$5 - The Corrs – Forgiven, Not Forgotten\
+$5 - The Corrs – Talk On Corners\
+$5 - The Corrs – In Blue\
 $5 - Village People - The Best Of Village People\
 $10 - Kaskade - Fire & Ice (2xCD)\
-
 
 
 -----------------------------------------------------------------------------------\
@@ -1752,7 +1754,7 @@ $10 - Rhythm Republic - Into TYhe Groove (Madonna bootleg)\
 $10 - DJ Toys - Ladies w/ Attitude (Madonna Bootleg)\
 $10 - Madonna - Sorry Beat (Bootleg)\
 $5 - Patty - Ray of Light (Madonna Cover)\
-$10 - Donna - Everybody (Madonna Cover)\z
+$10 - Donna - Everybody (Madonna Cover)\
 $5 - U96 - Love Sees No Colour(Bass Bumpers Remix)\
 $5 - Fresh System - Down Under\
 $5 - Steve Angelo vs Metallica / Crystal Waters - Metallica Is Dancing / Gypsy Woman (Bootleg Mix)\
@@ -1826,6 +1828,7 @@ $5 - S.I.F.T.Y.P. - Fade2Grey 2004 (Bootleg)\
 $10 - Thomas Falcon Presents Valerie (Steve Winwood Bootleg)\
 $5 - Boston - One In A Million / Believe\
 $5 - Kaci - Paradise \
+$5 - Jane Wiedlin – Rush Hour (Extended Remix)\
 $5 - Candy Fup - Strawberry Fields Forever\
 $5 - Sylver - Forever In Love\
 $5 - Kim Sanders - Show Me\
@@ -2165,7 +2168,8 @@ $5 - Abbacadabra - Knowing Me Knowing You\
 $5 - Abbacadabra - The Visitors / One Of Us\
 $5 - Axel F - The Winner Takes It All\
 $5 - Sash! - With My Own Eyes\
-$8 - Soul Solution - Don't Ask Why (2x12") (ToTo Remix)
-$5 - Kris Kross - Alright
-$5 - Thalia / Sean Paul/ Snow - Dance Dance / Get Busy / Whass Up
-$5 - Lisa Lougheed - Love Vibe
+$8 - Soul Solution - Don't Ask Why (2x12") (ToTo Remix)\
+$5 - Kris Kross - Alright\
+$5 - Thalia / Sean Paul/ Snow - Dance Dance / Get Busy / Whass Up\
+$5 - Lisa Lougheed - Love Vibe\
+$5 - A.T.F.C.* Featuring Lisa Millett – Sleep Talk\
