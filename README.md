@@ -948,7 +948,7 @@ $3 - Benassi Bros. – Pumphonia\
 $5 - Benny Benassi - Re-Sfaction\
 $5 - Black Box – Mixed Up!\
 $3 - Bryan Adams – So Far So Good\
-$5 - Boney M. 2000* – 20th Century Hits\
+$5 - Boney M. 2000 – 20th Century Hits\
 $5 - Crystal Waters – The Best Of Crystal Waters\
 $5 - Daft Punk - Homework\
 $25 - David Guetta - One Love XXL (3cCD + DVD)\
@@ -1039,7 +1039,8 @@ $5 -  Euro Dance Pool Volume 1\
 $5 -  Euro Dance Pool Volume 2\
 $10 - Eurotic Dance\
 $10 - Eurotic 2\
-$15 -  Fantastic 80s! Extended (2xCD)\
+$15 - Fantastic 80s! Extended (2xCD)\
+$10 - French Electro (2xcd)\
 $10 - Fierce Angel - Fierce Disco II (3xCD)\
 $5 -  Hit 'N' Dance 1\
 $10 - Hed Kandi: Beach House 2010 (3xCD)\
