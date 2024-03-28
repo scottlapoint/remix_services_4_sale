@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Mar 6, 2024)
+Hello DJ World! - (Last updated Mar 29, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -38,40 +38,35 @@ CD - $50 - Prime Cuts - The Best Of Volume 3 (Producer's Choice) \
 
 DISCOTECH ($300 for the lot)
 ----------------------------------------------------------------------------------
-CD - $35 - Issue Three\
-CD - $40 - Issue Ten\
-CD - $30 - Issue Twelve\
-CD - $20 - Issue Fourteen\
-CD - $20 - Issue Fifteen\
-CD - $25 - Issue Seventeen\
-CD - $20 - Issue Nineteen\
-CD - $30 - Issue Twenty\
-CD - $20 - Issue TwentyOne\
-CD - $20 - Issue TwentyTwo\
-CD - $20 - Issue TwentyThree\
-CD - $30 - Issue TwentyFour\
-CD - $35 - Issue TwentyFive\
-CD - $50 - Issue TwentySeven\
-CD - $20 - Issue TwentyEight\
-CD - $20 - Issue TwentyNine\
-CD - $30 - Issue ThirtyOne\
-CD - $30 - Issue ThirtyTwo\
-CD - $20 - Issue ThirtyThree\
-CD - $15 - Issue ThirtyFour\
-CD - $40 - Issue ThirtyFive\
-CD - $20 - Issue ThirtySix\
-CD - $20 - Issue ThirtyEight\
-CD - $15 - Issue ThirtyNine\
-CD - $20 - Issue Forty\
-CD - $20 - Issue FortyOne\
-CD - $20 - Issue FortyTwo\
+CD - $35 - Issue 3 Three\
+CD - $40 - Issue 10 Ten\
+CD - $30 - Issue 12 Twelve\
+CD - $20 - Issue 14 Fourteen\
+CD - $20 - Issue 15 Fifteen\
+CD - $25 - Issue 17 Seventeen\
+CD - $30 - Issue 20 Twenty\
+CD - $20 - Issue 21 TwentyOne\
+CD - $20 - Issue 22 TwentyTwo\
+CD - $20 - Issue 23 TwentyThree\
+CD - $30 - Issue 24 TwentyFour\
+CD - $35 - Issue 25 TwentyFive\
+CD - $20 - Issue 29 TwentyNine\
+CD - $30 - Issue 31 ThirtyOne\
+CD - $30 - Issue 32 ThirtyTwo\
+CD - $20 - Issue 33 ThirtyThree\
+CD - $15 - Issue 34 ThirtyFour\
+CD - $20 - Issue 38 ThirtyEight\
+CD - $15 - Issue 39 ThirtyNine\
+CD - $20 - Issue 40 Forty\
+CD - $20 - Issue 41 FortyOne\
+CD - $20 - Issue 42 FortyTwo\
 CD - $20 - DDR 44\
 CD - $40 - DDR 45\
 CD - $40 - DDR 46\
 CD - $30 - DDR 47\
 CD - $25 - DDR 48\
 
-12 - $25 - Issue Twenty\
+12 - $25 - Issue 20 Twenty\
 
 
 DEM
@@ -94,10 +89,10 @@ CD - $25 -- Issue 8\
 
 WICKED MIX
 ----------------------------------------------------------------------------------
-PENDING - 12 - $15 - Issue 01\
-PENDING - 12 - $15 - Issue 04\
-PENDING - 12 - $15 - Issue 12\
-PENDING - CD - $25 - Volume 13\
+12 - $15 - Issue 01\
+12 - $15 - Issue 04\
+12 - $15 - Issue 12\
+CD - $25 - Volume 13\
 
 
 REMIX CENTRAL ($40 for the lot)
