@@ -999,7 +999,6 @@ $5 - Blanco Y Negro Hits 11-09\
 $5 - Blanco Y Negro Hits 11-10\
 $20 - Capital Records - B.U.D. Special Edition #3\
 $15 - Chris Sheppard - Chris Sheppard's Club Cutz 101\
-$10 -  Club Azuli Ibiza 2007 (Unmixed DJ Format) (2xCD)\
 $15 - CLub Elements\
 $15 - Club Culture Volume 1\
 $5 - Club Cutz Volume 3\
@@ -1265,9 +1264,7 @@ $30 - Decoy & Roy - Inner Life\
 $10 - Denise Lopez – Don't You Wanna Be Mine\
 $10 - Dee Dee - The One\
 $100 - Deep Spirit - Lonely\
-$5 - Deep Dish - Flashdance\
 $3 - Delerium - Duende\
-$5 - Delerium Featuring Sarah McLachlan – Silence\
 $5 - Depeche Mode – Personal Jesus\
 $5 - DFS - Ou Eee Ou\
 $3 - Digital Rockers - Because I Love You\
@@ -1746,7 +1743,6 @@ $5 - Simply Bass Promo Sam Mollison - Will You Love Me In The Morning / 49ers. -
 $5 - David Morales Presents The Face - Needing You\
 $8 - Culture Beat - Insanity (2x12)\
 $10 - Rauhofer Live @ Roxy - Madonna - Mother & Father / Spectrum - Kinda New / Robbie Rivers - Master Of Drums / DJ Rooster & Sammy Peralta - Move Your Body\
-$10 - Rhythm Republic - Into TYhe Groove (Madonna bootleg)\
 $10 - DJ Toys - Ladies w/ Attitude (Madonna Bootleg)\
 $10 - Madonna - Sorry Beat (Bootleg)\
 $5 - Patty - Ray of Light (Madonna Cover)\
@@ -1755,7 +1751,6 @@ $5 - U96 - Love Sees No Colour(Bass Bumpers Remix)\
 $5 - Fresh System - Down Under\
 $5 - Steve Angelo vs Metallica / Crystal Waters - Metallica Is Dancing / Gypsy Woman (Bootleg Mix)\
 $5 - The Soundlovers - Abracadabra\
-$5 - Floorfilla - Italodancer\
 $5 - Floorfilla - Italodancer\
 $5 - Energy 52 - Cafe Del Mar 2002 Remix\
 $5 - Sunloverz - Shine On\
@@ -1884,7 +1879,6 @@ $5 - Y Para Sol - Feels Like Sunshine\
 $5 - A&R - Family (Funky house version to Christopher Cross / Angry Young Men)\
 $5 - Rui Da Silva - Touch me (Ren & Stimpy Remix)\
 $5 - Pascal - I Think We're Alone Now\
-$5 - Technotronic - Pump Up The Jam 2005 (Bootleg)\
 $5 - Jean Knight - Toot Toot\
 $5 - Soda Club - Take My Breath Away\
 $5 - Beverly - The Power Of Love\
@@ -1906,7 +1900,6 @@ $5 - Pedro Del Mar - Harder\
 $5 - Valerie Dare - The Night\
 $8 - Ruffneck - Move Your Body (Remixes) (2x12)\
 $5 - Rachel Starr -  Till There Was You\
-$5 - Bon Garçon - Freak U (Remixes)\
 $5 -  Love Inc - You're A Superstar 2003\
 $5 - Jacksoul - I Know What You Want\
 $5 - Les Rythmes Digitales - From Disco To Disco (Remix)\
@@ -1992,8 +1985,6 @@ $5 - Black Dave - Big Moma\
 $5 - Wink - Simple Man (Featuring The Interpreters)\
 $5 - Craig David - What's Yo Flava?
 $5 - Global Cee - Alive\
-$5 - DJ Shog - Jealousy\
-$5 - Rui Da Silva - Feel The Love\
 $5 - Blaze feat Sybil - When I Fall In Love\
 $5 - Tom De Neef vs Mochico - Sweat\
 $5 - White House feat Touria - Hold That Sucker Down\
@@ -2135,7 +2126,6 @@ $5 - Jennifer Lopez - Play (Remixes)\
 $5 - Joey Negro - Make A Move\
 $5 - Underdog Project - Saturday Night\
 $5 - Steve Angello - Toolbox EP\
-$5 - GREED - Pump Up The Volume\
 $5 - One Ton - Supersexworld (Red Vinyl)\
 $5 - Jelleestone - Money (Green Vinyl)\
 $5 - Avant Garde - Don't Stop\
