@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated May 31, 2024)
+Hello DJ World! - (Last updated June 7, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -954,6 +954,8 @@ $5 - Daft Punk - Homework\
 $25 - David Guetta - One Love XXL (3cCD + DVD)\
 $5 - deadmau5 – At Play\
 $5 - deadmau5 – At Play 2\
+$15 - deadmau5 – 5 Years Of Mau5 (2xCD)\
+$15 - Deadmau5 – The Remixes (Unmixed For DJs) (2xCD)\
 $5 - Deborah Cox – Remixed\
 $50 - Depeche Mode - Remixes 2. 81-11 (3xCD)
 $80 - Depeche Mode - Remixes 81···04 (3xCD)\
@@ -981,6 +983,8 @@ $10 - Tiësto – Kaleidoscope Remixed\
 $5 - The Corrs – Forgiven, Not Forgotten\
 $5 - The Corrs – Talk On Corners\
 $5 - The Corrs – In Blue\
+$20 - Tiesto - Elements of Life (Remixes) (2xCD)\
+$10 - Tiesto - Kaleidoscope Remixed\
 $5 - Village People - The Best Of Village People\
 $10 - Kaskade - Fire & Ice (2xCD)\
 
@@ -992,6 +996,10 @@ $5 - 12 Maxi Dance Hits\
 $65 - 30 Dance Divas (2xCD)\
 $10 - 80's Dance Party 1 2 3 / Energy 4 the 90s (4xCD)
 $20 - All-Time Classic Hits\
+$40 - Austrailian Club Breeakers Vol 5 (2xCD)\
+$30 - Austrailian Club Breeakers Vol 6 (2xCD)\
+$60 - Austrailian Club Breeakers Vol 7 (2xCD)\
+$40 - Austrailian Club Breeakers Vol 8 (3xCD)\
 $5 - Azuli Presents Miami 10 (Unmixed For DJ's Only)\
 $5 - bpm:tv Takin' It To The Streets\
 $40 -  Back Spins Volume One\
@@ -999,6 +1007,11 @@ $5 - Blanco Y Negro Hits 11-09\
 $5 - Blanco Y Negro Hits 11-10\
 $20 - Capital Records - B.U.D. Special Edition #3\
 $15 - Chris Sheppard - Chris Sheppard's Club Cutz 101\
+$80 - Club Breeakers Vol 9 (2xCD)\
+$30 - Club Breeakers Vol 10 (2xCD)\
+$50 - Club Breeakers Vol 11 (3xCD)\
+$40 - Club Breeakers Vol 12 (3xCD)\
+$75 - Club Breeakers Vol 13 (3xCD)\
 $15 - CLub Elements\
 $15 - Club Culture Volume 1\
 $5 - Club Cutz Volume 3\
@@ -1025,10 +1038,49 @@ $5 - Dance World - Volume One - The Best Dance Music From Around The World\
 $5 - Dance N-R-G Vol. 2 (2xCD)\
 $30 - D:Vision Club Session 37 - Miami 2014 (2xCD)
 $30 - D:Vision Club Session 38 (2xCD)\
-$25 -  Dance Remakes - The Original Covers\
+$25 - Dance Remakes - The Original Covers\
 $10 - Dance Revolution\
 $20 - Dee Jay's Choice Volume 1\
 $20 - Dee Jay's Choice Volume 2\
+$10 - D:Vision DJ Club Hits 1\
+$10 - D:Vision DJ Club Hits 2\
+$10 - D:Vision DJ Club Hits 3\
+$10 - D:Vision DJ Club Hits 4\
+$10 - D:Vision DJ Club Hits 5\
+$10 - D:Vision DJ Club Hits 6\
+$10 - D:Vision DJ Club Hits 7\
+$10 - D:Vision DJ Club Hits 8\
+$10 - D:Vision DJ Club Hits 9\
+$10 - D:Vision DJ Club Hits 10\
+$10 - D:Vision DJ Club Hits 11\
+$10 - D:Vision DJ Club Hits 12\
+$10 - D:Vision DJ Club Hits 13\
+$10 - D:Vision DJ Club Hits 14\
+$10 - D:Vision DJ Club Hits 15\
+$10 - D:Vision DJ Club Hits 16\
+$10 - D:Vision DJ Club Hits 17\
+$10 - D:Vision DJ Club Hits 18\
+$10 - D:Vision DJ Club Hits 19\
+$25 - DJ Masters Unmixed 1 (3xCD)\
+$35 - DJ Masters Unmixed 2 (3xCD)\
+$35 - DJ Masters Unmixed 3 (3xCD)\
+$25 - DJ Masters Unmixed 4 (3xCD)\
+$85 - DJ Masters Unmixed 5 (3xCD)\
+$25 - DJ Masters Unmixed 6 (3xCD)\
+$25 - DJ Masters Unmixed 7 (3xCD)\
+$25 - DJ Masters Unmixed 8 (3xCD)\
+$25 - DJ Masters Unmixed 9 (3xCD)\
+$25 - DJ Masters Unmixed 10 (3xCD)\
+$25 - DJ Masters Unmixed 11 (3xCD)\
+$30 - DJ Masters Unmixed 12 (3xCD)\
+$30 - DJ Masters Unmixed 13 (3xCD)\
+$60 - DJ Masters Unmixed 14 (3xCD)\
+$25 - DJ Masters Unmixed 15 (3xCD)\
+$25 - DJ Masters Unmixed 16 (3xCD)\
+$25 - DJ Masters Unmixed 17 (3xCD)\
+$25 - DJ Masters Unmixed 18 (3xCD)\
+$40 - DJ Masters Unmixed 19 (3xCD)\
+$35 - DJ Masters Unmixed 19 (3xCD)\
 $20 - DJ Power Pack '99\
 $10 - Do It Again: The Best Of Famous Cover Hits (2xCD)\
 $20 - Dub House Disco & Dub House Disco 2000 (2xCD)
@@ -1045,6 +1097,8 @@ $5 -  Hit 'N' Dance 1\
 $10 - Hed Kandi: Beach House 2010 (3xCD)\
 $20 - Hed Kandi: Disco Kandi (2xCD(\
 $5 -  House Anthems 07/08 (2xCD)\
+$20 - House Nation 1 (2xCD)\
+$20 - House Nation 2 (2xCD)\
 $30 - Italo Euro Hits 1 (Tony Monaco)\
 $30 - Italo Euro Hits 2 (Tony Monaco)\
 $5 - Living In Oblivion 1\
@@ -1052,21 +1106,30 @@ $5 - Living In Oblivion 2\
 $5 - Living In Oblivion 3\
 $5 - Living In Oblivion 4\
 $5 - Living In Oblivion 5\
+$10 - Los Cuarenta Vol.1 Unmixed (2xCD)\
 $10 - Los Cuarenta Vol.2 Unmixed (2xCD)\
+$10 - Los Cuarenta Vol.2 Unmixed (2xCD)\
+$10 - Los Cuarenta Vol.3 Unmixed (2xCD)\
 $5 - Massive Dance Hits\
 $15 - Massive Hits! 80s Remix (3xCD)\
 $5 - Now That's What I Call Club Hits 2\
 $80 - Oh What A Feeling (A Vital Collection Of Canadian Music) Vol 1 (4xCD)\
 $20 - Oh What A Feeling (A Vital Collection Of Canadian Music) Vol 2 (4xCD)\
 $60 - Oh What A Feeling (A Vital Collection Of Canadian Music) Vol 3 (4xCD)\
+$25 - Old School Nation 1 (2xCD)\
+$25 - Old School Nation 2 (2xCD)\
+$25 - Old School Nation 3 (2xCD)\
+$15 - Old School Jams 3 (2xCD)\
+$15 - Old School Jams 6 (2xCD)\
 $5 - Party Mix\
 $10 - Pure Energy\
 $20 - Promo Only - J.C. Music Danse Compilation 2001/6\
 $10 - Rap Traxx 5\
 $10 - Recharge - New Music From RCA\
 $3 -  Red Hot + Dance\
+$10 - Redeux Vol II (3xCD)\
 $15 - Rhythm Formula Anthems\
- $15 - Rhythm Formula Vol III - Discovery
+$15 - Rhythm Formula Vol III - Discovery
 $10 - Rhythm Formula Vol Four - Essentials
 $25 - Rhythm Formula Vol. Five - Absolute\
 $5 - Singles - #1 Club Remixes\
@@ -1449,6 +1512,7 @@ $4 - Loft - Hold On\
 $10 - Lost Witness - Home\
 $40 - Love & Laughter - I Surrender\
 $5 - Love Connection - The Bomb\
+$10 - Luka - Tô Nem Ai\
 $5 - MBO - I Was Made For Loving You (Dance Version) (Kiss remake)\
 $5 - Magnolia – It's All Vain\
 $5 - Mandy Moore - I Wanna Be With You / Candy (Remixes)\
@@ -1710,7 +1774,10 @@ $10 - Ziporra - What About U\
 -----------------------------------------------------------------------------------
 12" SINGLES FOR SALE
 --------------------------------------------------------------------------------
-$8 -  Nalin & Kane vs Denis The Menace - Beachball 2003  (2x12")\
+$8 - Nalin & Kane vs Denis The Menace - Beachball 2003  (2x12")\
+$3 - E.X.P. - Shake Your Body\
+$4 - Splash - Touch Me\
+$20 - Green Velvet - La La Land\
 $5  - $prezioso ft Marvin - Rock Da Discotech\
 $5 - Masterboy - Feel The Heat Of The Night 2003\
 $5 - JJ Brothers - Move It Up\
@@ -1820,6 +1887,7 @@ $10 - Thomas Falcon Presents Valerie (Steve Winwood Bootleg)\
 $5 - Boston - One In A Million / Believe\
 $5 - Kaci - Paradise \
 $5 - Jane Wiedlin – Rush Hour (Extended Remix)\
+$5 - Luka - Tô Nem Ai\
 $5 - Candy Fup - Strawberry Fields Forever\
 $5 - Sylver - Forever In Love\
 $5 - Kim Sanders - Show Me\
@@ -1854,6 +1922,7 @@ $5 - Blue Rose - Minutes / James Korner - When You Got It\
 $5 - Cabballero - Hymn\
 $5 - Disco Walker - Shining Song\
 $5 - Chilli Hi Fly - It's Alright\
+$15 - Shapeshifters - Lola's Theme (Remix)\
 $5 - Deborah Cox - Absolutely not\
 $5 - Milk Inc - Walk On Water\
 $8 - Milk Inc - Time / Breathe Without You (2x12)\
@@ -2059,6 +2128,7 @@ $5 - The Funky Headhunters - Santa Monica\
 $5 - Ultra Nate - Desire\
 $5 - Thrust - This Is For Sure\
 $5 - DNA Project - Music Is My Life\
+$15 - The Age Of Love* – The Age Of Love 2002 Remixes\
 $5 - Shauna Soloman - I Wanna Be\
 $5 - Mory Kana - Tama\
 $5 - Orphean ft Terry - My People / Mr Phillips - 7th Day\
