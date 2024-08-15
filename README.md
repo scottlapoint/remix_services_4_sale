@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated June 7, 2024)
+Hello DJ World! - (Last updated Aug 13, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -1005,6 +1005,15 @@ $5 - bpm:tv Takin' It To The Streets\
 $40 -  Back Spins Volume One\
 $5 - Blanco Y Negro Hits 11-09\
 $5 - Blanco Y Negro Hits 11-10\
+$20 - BMG Dance Compilation 56\
+$20 - BMG Dance Compilation 64\
+$20 - BMG Dance Compilation 73\
+$10 - BMG Dance Compilation 75
+$10 - BMG Dance Compilation 95\
+$50 - BMG Dance Compilation 114\
+$15 - BMG Dance Compilation 115\
+$20 - BMG Dance Compilation 134\
+$20 - BMG Dance Compilation 151\
 $20 - Capital Records - B.U.D. Special Edition #3\
 $15 - Chris Sheppard - Chris Sheppard's Club Cutz 101\
 $80 - Club Breeakers Vol 9 (2xCD)\
@@ -1123,6 +1132,7 @@ $15 - Old School Jams 3 (2xCD)\
 $15 - Old School Jams 6 (2xCD)\
 $5 - Party Mix\
 $10 - Pure Energy\
+$30 - Popular Canada Winter Music Sampler 1998\
 $20 - Promo Only - J.C. Music Danse Compilation 2001/6\
 $10 - Rap Traxx 5\
 $10 - Recharge - New Music From RCA\
@@ -1209,10 +1219,12 @@ $10 - Amber - This Is Your Night\
 $20 - Ame - Rej\
 $5 - Anastacia - I'm Outta Love\
 $20 - Andain - Beautiful Things\
+$25 - Andy Hunter - Amazing (Mixes)\
 $3 - Angel City – Do You Know (I Go Crazy)\
 $5 - Angel City – Love Me Right (All Mixes)\
 $3 - Angel City - Sunrise\
 $10 - Annick Gagnon – I'm Temperamental\
+$5 - Another Chance - Everytime I See Her (Sound Of Eden)\
 $5 - Annie Lennox – Pavement Cracks (The Remixes)\
 $10 - Aqua - Barbie Girl\
 $10 - Aqua - Roses Are Red\
@@ -1233,6 +1245,7 @@ $20 - Basement Three / Cindy (3) / DJ Hush – Dum Dum / Crazy For You / It's A 
 $5 - Basement Jaxx - Red Alert\
 $3 - Beat System - Fresh (Kool & The Gang Remix)\
 $5 - Beatfreakz - Superfreak\
+$20 - Belly - Don'y Be Shy\
 $5 - Benassi Bros. Pres. Violeta – I Love My Sex\
 $3 - Big Bass – Badda Bing Badda Boom\
 $3 - Billy Crawford - Urgently In Love\
@@ -1316,7 +1329,7 @@ $25 - Daddy DJ - Daddy DJ\
 $4 - Daddy DJ - Over You\
 $15 - Daddy K – Voulez-Vous Coucher Avec Moi?\
 $10 - David Morales Pres The Face - Needin U II (2001 mixes)\
-$15 -  Dancelicious - Hot Dance Mixes (Beyonce / Solange / Lady Gaga)\
+$15 - Dancelicious - Hot Dance Mixes (Beyonce / Solange / Lady Gaga)\
 $4 - Danzel - Pump It Up\
 $5 - Davidson - All I Wanna Do\
 $5 - Daze – Together Forever (The Cyber Pet Song)\
@@ -1328,6 +1341,8 @@ $10 - Denise Lopez – Don't You Wanna Be Mine\
 $10 - Dee Dee - The One\
 $100 - Deep Spirit - Lonely\
 $3 - Delerium - Duende\
+$40 - Delerium - After All\
+$20 - Delerium - Silence Mixes\
 $5 - Depeche Mode – Personal Jesus\
 $5 - DFS - Ou Eee Ou\
 $3 - Digital Rockers - Because I Love You\
@@ -1364,6 +1379,8 @@ $200 - Emjay - Sound of My Heartbeat\
 $200 - Emjay - Flying To The Moon\
 $20 - Energy 52 - Cafe Del Mar (2003 mixes)\
 $4 - ErickE - The Beat Is Rockin\
+$5 - Erin McKeown - Cosmopolitans (Trifactor Remixes)\
+$5 - Erin McKeown - Cosmopolitans (Trifactor Remixes)\
 $10 - Enrique Iglesias - Bailamos\
 $20 - Enrique Iglesias - Rhythm Divine\
 $3 - Erasure - Abba-Esque\
@@ -1468,6 +1485,7 @@ $20 - Katalina - DJ Girl\
 $150 - Katie Emme - Shake Your Love\
 $30 - Katie Emmie - We Can Dance\
 $40 - Kim Sanders - Show Me\
+$20 - Kinky – Presidente & Mas Remixes\
 $3 - K.W.S. – Rock Your Baby\
 $5 - Kelly Clarkson – Low / Miss Independant\
 $15 - Kelly Llorenna - Tell It To My Heart\
@@ -1623,6 +1641,7 @@ $15 - Rick Astley - 12" Collection\
 $5 - Right Said Fred - Don't Talk Just Kiss\
 $5 - Right Said Fred - I'm Too Sexy\
 $5 - Rio Bravo - Thank God I'm A Country Boy\
+
 $5 - Robert Miles - One & One (Remixes)\
 $3 - Robin S - Back It Up\
 $10 - Robin S - Luv 4 Luv (Tonka Remixes)\
@@ -1639,6 +1658,10 @@ $5 - Salt 'N' Pepa - Start Me Up\
 $10 - Sam Mollison – Will You Love Me In The Morning\
 $10 - Sandy - Bad Boy\
 $3 - Santana – Maria Maria\
+$10 - Sarah McLachlan - Bloom-Remixed\
+$75 - Sarah McLachlan - World On Fire Mixes\
+$75 - Sarah McLachlan - World On Fire Mixes\
+$30 - Sarah McLachlan - Fallen\
 $5 - Sarah Washington - I Will Always Love You (Dance Mix)
 $10 - Sasha Alexander – Let Me Be The One\
 $3 - Scooter - Fire
@@ -1689,6 +1712,7 @@ $5 - Sunloverz – Shine On\
 $20 - SoundBluntz - Maybe You'll Get Lucky\
 $50 - Sounds of Pink - Everybody Knows\
 $5 - SoundFactory - Good Time\
+$10 - Stephanie Dion - Ring My Bell\
 $10 - Supermode - Tell Me Why\
 $10 - Sweetbox - Booyah Here We Go\
 $3 - Strike – My Love Is For Real\
@@ -1716,9 +1740,9 @@ $10 - The Pussycat Dolls Feat. Busta Rhymes - Don't Cha (Remixes)\
 $5 - The Shapeshifters - Incredible
 $3 - The Underdog Project - Summerjam 2003\
 $10 - Tira Black - Play With Me / Push It In \
-$15 Toni Braxton - Pulse The Remixes Part 1\
-$15 Toni Braxton - Pulse The Remixes Part 2\
-$15 Toni Braxton - Pulse The Remixes Part 3\
+$15 - Toni Braxton - Pulse The Remixes Part 1\
+$15 - Toni Braxton - Pulse The Remixes Part 2\
+$15 - Toni Braxton - Pulse The Remixes Part 3\
 $5 - Toni Braxton - I Don't Want To / I Love Me Some Him
 $25 - Toni Braxton – The Remixes (Part 2)\
 $5 - Toni Braxton – You're Makin Me High (Remix) / Let It Flow\
@@ -2118,6 +2142,7 @@ $5 - Jermaine Jackson - When The Rain Begins To Fall\
 $5 - Ranka - Put Your Hands In The Air\
 $5 - Nokko - I Will Catch You\
 $5 - Eddie Thoneick feat Berget Lweis - Deeper Love (Remixes)\
+$5 - Eddie Thoneick Featuring Berget Lewis - Deeper Love\
 $5 - Arqonout - Your Body Is A Temple\
 $5 - 68 Beats - Replay The Night\
 $5 - Relic vs E Craig - Feels Like Runnin / Do It\
@@ -2228,4 +2253,59 @@ $8 - Soul Solution - Don't Ask Why (2x12") (ToTo Remix)\
 $5 - Kris Kross - Alright\
 $5 - Thalia / Sean Paul/ Snow - Dance Dance / Get Busy / Whass Up\
 $5 - Lisa Lougheed - Love Vibe\
-$5 - A.T.F.C.* Featuring Lisa Millett – Sleep Talk\
+$5 - A.T.F.C. Featuring Lisa Millett – Sleep Talk\
+$8 - Chris & Kai ft Jade Starling - Catch Me I'm Falling (2x12")\
+$5 - Who's Who - Sexy F**k\
+$50 - Henry Mancini - Pink Panther's Penthouse Party (Light Pink Marble Vinyl)\
+$5 - Sleazesisters - Let's Whip It Up (Pink Vinyl)
+$5 - Bob Sinclar - Kiss My Eyes (G Club & Antoine Clamaran Remixes)\
+$5 - Bob Sinclar - Kiss My Eyes (US Mixes)\
+$10 - Gabrielle - Rise (Deep Dish Remixes) (2x12")\
+$5 - Dave Spoon - OUtside EP\
+$5 - CRW ft Veronikas - Like A Cat\
+$5 - C.D.K. - I'm Your Boogie Man '98\
+$3 - D-Lambo - Crazy\
+$5 - Starshrider - Voodoo\
+$5 - Ian Carey Project - Love Can't Wait\
+$3 - Sonique - Alive\
+$5 - Katla - Algun Dia\ 
+$3 - Tofunk - Alright\
+$5 - Ascension - For A Lifetime\
+$5 - Nicole Brand - Remember Me (Scialali Scialala)\
+$5 - Pulsedriver / Benny B - Time / Able To Love\
+$5 - Bionik Blue - Take Control (Marble Light Blue Vinyl)\
+$10 - Various - Sony BMG Promo EP (Soul Seekerz, The Philosopher Kings, Natasha Bedingfield, T-Pain)\
+$5 - Kopper - Pump\
+$3 - Miller & Connor - Come Together\
+$5 - Kobbe & Austin Leeds Present The Land Of Voodoo - Bodyshaker\
+$5 - Aura (14) / The Clan (4) / Bit Max* Featuring Layla (8) / E.X.E.L. Featuring Aurelie Mayers* - When / Love And Light / Jack Is Back / Everytime\
+$5 - My Digital Enemy Featuring Georgie Dennis - Runaway (Feel The Love)\
+$5 - Kane - Rain Down On Me\
+$3 - Sarah Brightman - Harem\
+$10 - Fischerspooner - Emerge (2x12")\
+$5 - Yves & Lola T - Dirty Boogie\
+$10 - Jully Black - Sweat Of Your Brow\
+$3 - Jessica Simpson - These Boots Are Made For Walkin\
+$25 - ATTIC - I'm Losing You\
+$3 - Airheadz - Stanley (Here I Am)\
+$4 - Cherry Moon - Everybody Get Down\
+$5 - Blank & Jones Feat. Elles* - Mind Of The Wonderful (Mark Norman Rmx's) (Clear Marble Vinyl)\
+$5 - D-Devils - Release The Virgins (Yellow Vinyl)\
+$5 - Another Chance - Everytime I See Her (Sound Of Eden)\
+$10 - Martin Stevens - Love Is In The Air (Blue & Purple Vinyl) (2x12")\
+$3 - Mike Robbins - Are You A Freak Disc 1\
+$3 - Mike Robbins - Are You A Freak Disc 2\
+$5 - Narcotic Thrust - When The Dawn Breaks\
+$5 - Nova Spave - Run To You\
+$3 - The Disco Brothers Feat. Andrea Britton - Time Still Drifts Away\
+$5 - Alex Party - Alex Party (Read My Lips)\
+$3 - Jerry Ropero Pres. Michael Simon Feat. Mazaya - Home Alone\
+$4 - Onehundredpercent* Featuring Jennifer John - Just Can't Wait (Saturday)\
+$4 - EXP - Step By Step\
+$10 - Scooter - Maria (I Like It Loud)\
+$5 - Dave McCullen - B*tch\
+$3 - Partypimpz - Give It Up\
+$3 - Steven Paul Perry* - Sugar Sugar\
+$5 - Mo-Reece – Rubba Dub Love\
+$5 - Tripple X - Feel The Same / Cherry - Boogie On Da Floor\
+$10 - Télépopmusik – Breathe\
