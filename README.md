@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Aug 13, 2024)
+Hello DJ World! - (Last updated Aug 19, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -1191,6 +1191,7 @@ $10 - 4 Strings - Let It Raun\
 $5 - 56k Feat. Bejay – Save A Prayer\
 $5 - 49ers – I Got The Music Aka I Got It\
 $3 - A.D.A.M. - Zombie (Dance Version)\
+$50 - The Angry Kids vs A Flock of Seagulls - I Ran (So Far Away)\
 $5 - A Studio Feat. Polina - S.O.S. \
 $10 - Abbacadabra - Dancing Queen\
 $5 - Ace Of base - Beautiful Life\
@@ -1343,6 +1344,7 @@ $100 - Deep Spirit - Lonely\
 $3 - Delerium - Duende\
 $40 - Delerium - After All\
 $20 - Delerium - Silence Mixes\
+$10 - Delerium - Truly (Remixes)\
 $5 - Depeche Mode – Personal Jesus\
 $5 - DFS - Ou Eee Ou\
 $3 - Digital Rockers - Because I Love You\
@@ -1641,7 +1643,7 @@ $15 - Rick Astley - 12" Collection\
 $5 - Right Said Fred - Don't Talk Just Kiss\
 $5 - Right Said Fred - I'm Too Sexy\
 $5 - Rio Bravo - Thank God I'm A Country Boy\
-
+$20 - Rio Klein - Fearless (Remixes)\
 $5 - Robert Miles - One & One (Remixes)\
 $3 - Robin S - Back It Up\
 $10 - Robin S - Luv 4 Luv (Tonka Remixes)\
@@ -1728,6 +1730,7 @@ $10 - Temperance – If You Don't Know\
 $10 - The Boogie Pimps - Somebody To Love\
 $5 - The Boomshakers - Boom Shake The Room (Dance Mix)\
 $3 - The Boomtang Boys – Squeeze Toy / Popcorn\
+$5 - The Engine Room - A Perfect Lie (Gabriel & Dresdenn Remix)\
 $10 - The Kromozone Project - Take My Love\
 $5 - The Love Bite - Take Your Time\
 $5 - The Notorious B.I.G. Featuring Puff Daddy & Mase – Mo Money Mo Problems\
@@ -2309,3 +2312,7 @@ $3 - Steven Paul Perry* - Sugar Sugar\
 $5 - Mo-Reece – Rubba Dub Love\
 $5 - Tripple X - Feel The Same / Cherry - Boogie On Da Floor\
 $10 - Télépopmusik – Breathe\
+$5 - Jupiter Ace Presents J.A. Teknixx - Until The Music Stops\
+$5 - Denis The Menace Presents Selecta - My Friend Is A Dee Jay\
+$3 - Mutiny - Secrets\
+$5 - Mark Picchiotti Presents Basstoy Featuring Dana - Runnin'\
