@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Aug 19, 2024)
+Hello DJ World! - (Last updated Aug 25, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -1301,6 +1301,7 @@ $60 - CeCe Peniston - Finally\
 $5 - Ce Ce Peniston – Lifetime To Love\
 $5 - Celine Dion* – My Heart Will Go On (Love Theme From 'Titanic') (Dance Mixes)\
 $3 - Chris Lake feat. Laura V – Changes\
+$10 - Chris Lake feat. Laura V / Dallas Superstarz - Changes / Fine Day (Glow Digital Fall Sampler)\
 $5 - Charles & Eddie – Would I Lie To You?\
 $5 - Chocolate Puma – Always And Forever\
 $5 - Cher - All Or Nothing / Dov'e L'Amore\
@@ -1637,6 +1638,7 @@ $5 - Real McCoy - It's On You\
 $5 - Real McCoy - Love & Devotion\
 $5 - Real McCoy – One More Time (The Remixes)\
 $5 - Real McCoy - Run Away\
+$3 - Ricky J - Gotta Man\
 $3 - Ricky Martin – Livin' La Vida Loca (Remixes)\
 $5 - Richard Grey – Tainted Love (Warped Bass)\
 $15 - Rick Astley - 12" Collection\
@@ -1712,8 +1714,9 @@ $3 - Sugar Jones – Days Like That\
 $20 - Sunkids Feat. Chance – Rise Up\
 $5 - Sunloverz – Shine On\
 $20 - SoundBluntz - Maybe You'll Get Lucky\
+$20 - SoundBluntz - Stepping Stone / Just What I Needed\
 $50 - Sounds of Pink - Everybody Knows\
-$5 - SoundFactory - Good Time\
+$5 - Sound Factory - Good Time\
 $10 - Stephanie Dion - Ring My Bell\
 $10 - Supermode - Tell Me Why\
 $10 - Sweetbox - Booyah Here We Go\
@@ -1731,6 +1734,7 @@ $10 - The Boogie Pimps - Somebody To Love\
 $5 - The Boomshakers - Boom Shake The Room (Dance Mix)\
 $3 - The Boomtang Boys – Squeeze Toy / Popcorn\
 $5 - The Engine Room - A Perfect Lie (Gabriel & Dresdenn Remix)\
+$5 - The Jackmasters - Love Can't Turn Around\
 $10 - The Kromozone Project - Take My Love\
 $5 - The Love Bite - Take Your Time\
 $5 - The Notorious B.I.G. Featuring Puff Daddy & Mase – Mo Money Mo Problems\
