@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Aug 25, 2024)
+Hello DJ World! - (Last updated Oct 4, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -2323,4 +2323,44 @@ $10 - Télépopmusik – Breathe\
 $5 - Jupiter Ace Presents J.A. Teknixx - Until The Music Stops\
 $5 - Denis The Menace Presents Selecta - My Friend Is A Dee Jay\
 $3 - Mutiny - Secrets\
-$5 - Mark Picchiotti Presents Basstoy Featuring Dana - Runnin'\
+$5 - Mark Picchiotti Presents Basstoy Featuring Dana - Runnin\
+$5 - Max Coleman - Iinside Out\
+$5 - D&D - Maniac\
+$10 - Hollis P Monroe - I'm Lonely\
+$50 - Pet Shop Boys - Harder (Underground Mixes)\
+$3 - Sex Machine - Fruday Night\
+$5 - State Of Grace - Wonder Why\
+$10 - Snap! - Rhythm Is A Dancer (Superchumbo Remix Bootleg)\
+$10 - Benjamin Bates - Whole/Blue Monday\
+$10 - Way Out West Featuring Tricia Lee Kelshall - Mindcircus\
+$5 - 300 MT = Feelin Emotion\
+$5 - Brancaccio & Aisher - It's Gonna Be... (A Lovely Day)\
+$5 - Mauro Picotto & Fergie - Funkytech Funkytime\
+$4 - Sheila Brody - U Ain't That Good\
+$4 - Laszlo Panaflex - Dance To The Music (If You Wanna Prove It) (The Peter Rauhofer Remixes)\
+$4 - Amuka - Appreciate Me\
+$5 - Lula - The DJ, The Music, And Me (2x12)\
+$4 - Sea-Quest - One Reason\
+$4 - QC - Rite The Party\
+$3 - Nu Generation - In Your Arms (Rescue Me)\
+$4 - Therese - Feelin' Me\
+$3 - Clubtone Feat. Oliver Cheatham - Put A Little Love In Your Heart\
+$40 - French Affair - Sexy\
+$5 - S.W.A.P. - Rock The House\
+$40 - Global Deejays - The Sound Of San Francisco (Picture Disc)\
+$5 - Rezonance Q - Someday\
+$4 - Malik from The Outhere Bros - You Don't Know Malik\
+$4 - Booty Luv - Shine\
+$40 - Hott 22 - I Feel Love\
+$20 - Snap! - Best Of Snap! - The Remixes (2x12)\
+$3 - Busta Rhymes Featuring will.i.am & Kelis - I Love My Bitch / New York Shit\
+$3 - Juelz Santana - Clockwork
+$5 - Da Hool - Hypochonda\
+$5 - The Rumbar Feat. Anita - Tocasamba\
+$10 - System F - Cry 2005\
+$5 - Vivian Green - Gotta Go, Gotta Leave (Tired)\
+$4 - Slam Featuring Ann Saunderson - Lie To Me (Remixes)\
+$5 - Melissa Tkautz - The Glamorous Life\
+$3 - D-Groovy - Do It Right\
+$5 - Mylo Vs Tocadisco - In My Arms\
+$4 - Granite & Phunk Pres. SUSA Superstars – Make Me Feel\
