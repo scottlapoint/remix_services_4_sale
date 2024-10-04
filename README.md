@@ -2367,3 +2367,4 @@ $4 - Granite & Phunk Pres. SUSA Superstars – Make Me Feel\
 $5 - Primate C - Be Free With Your Love\
 $20 - Attic Feat. Julie Thompson – Last Goodbye\
 $10 - Antoine Clamaran – Let's Get Together (Remixes)\
+$4 - DJ Steve Power - Everybody Pump\
