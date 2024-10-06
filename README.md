@@ -2367,4 +2367,21 @@ $4 - Granite & Phunk Pres. SUSA Superstars – Make Me Feel\
 $5 - Primate C - Be Free With Your Love\
 $20 - Attic Feat. Julie Thompson – Last Goodbye\
 $10 - Antoine Clamaran – Let's Get Together (Remixes)\
-$4 - DJ Steve Power - Everybody Pump\
+$4 - Steve G. DJ Power - Everybody Pump\
+$10 - Kylie Minogue vs Unknown Artist - Time\
+$3 - Cevin Fisher - Work It Out\
+$3 - Cevin Fisher - Loving You (When It Comes To)\
+$3 - Cevin Fisher - Love You Some More\
+$10 - Junior Jack Feat. Shena - Dare Me (Stupidisco) (Remixes)\
+$20 - Michael Jackson - Dance 2 Me EP (Rock My World / Smooth Criminal / Wanna Be Startin Somthin / Billie Jean) (Bootleg)\
+$3 - La Griffe - Make It Shine\
+$5 - High Jinx - California Dreaming\
+$5 - Jet Fuel - Hang On Here We Go! (Theme To EC)\
+$4 - Roland Clark Presents Urban Soul - If I Was A DJ\
+$5 - Psycho Radio Feat. L.C. Anderson - Sound Is Shocking\
+$3 - I.K.L. & De Melero - Work It!\
+$5 - DJ Dan - Rock To The Rhythm\
+$4 - Tom Neville - Just F**k\
+$3 - Ryan Murgatroyd Feat. Tasha Baxter - Funk Country\
+$5 - Horizon Feat. Debora Kool - Sweet Love\
+$5 - Armin van Buuren Feat. Nadia Ali - Who Is Watching\
