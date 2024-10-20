@@ -1047,6 +1047,7 @@ $10 - Dance Pool 3\
 $10 - Dance Pool 4\
 $5 - Dance World - Volume One - The Best Dance Music From Around The World\
 $5 - Dance N-R-G Vol. 2 (2xCD)\
+$5 - Dance Express 6 Unmixed Promo\
 $30 - D:Vision Club Session 37 - Miami 2014 (2xCD)
 $30 - D:Vision Club Session 38 (2xCD)\
 $25 - Dance Remakes - The Original Covers\
