@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Oct 4, 2024)
+Hello DJ World! - (Last updated Oct 20, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -979,6 +979,7 @@ $10 - Rihanna – Good Girl Gone Bad Deluxe Edition (2xCD)\
 $5 - Sarah McLachlan – Remixed\
 $3 - Salt N Pepa - A Blitz Of Salt-N-Pepa Hits: The Hits Remixed\
 $5 - Snap! – Snap! Attack - The Remixes\
+$5 - Sweet Sensation - Love Child\
 $10 - Tiësto – Kaleidoscope Remixed\
 $5 - The Corrs – Forgiven, Not Forgotten\
 $5 - The Corrs – Talk On Corners\
@@ -1039,6 +1040,7 @@ $15 - Da Grooves\
 $15 - Dance Connection Vol. 1\
 $25 - Dance Classics - New Jack Swing Vol 1 (2xCD\
 $10 - Dancin Divas\
+$5 - Dance Hall Hits\
 $10 - Dance Pool 1\
 $10 - Dance Pool 2\
 $10 - Dance Pool 3\
@@ -1110,6 +1112,8 @@ $20 - House Nation 1 (2xCD)\
 $20 - House Nation 2 (2xCD)\
 $30 - Italo Euro Hits 1 (Tony Monaco)\
 $30 - Italo Euro Hits 2 (Tony Monaco)\
+$10 - Last Night A DJ Saved My Life Vol 1 (Bootleg & Hard To Find Remixes Compilatioin)\
+$10 - Last Night A DJ Saved My Life Vol 2 (Bootleg & Hard To Find Remixes Compilatioin)\
 $5 - Living In Oblivion 1\
 $5 - Living In Oblivion 2\
 $5 - Living In Oblivion 3\
@@ -1138,6 +1142,7 @@ $10 - Rap Traxx 5\
 $10 - Recharge - New Music From RCA\
 $3 -  Red Hot + Dance\
 $10 - Redeux Vol II (3xCD)\
+$5 - Reggae Mix 2\
 $15 - Rhythm Formula Anthems\
 $15 - Rhythm Formula Vol III - Discovery
 $10 - Rhythm Formula Vol Four - Essentials
@@ -1832,6 +1837,7 @@ $5 - Colette - What Will She Do For love\
 $5 - Seraphim Suite - Over\
 $5 - Tina - Hey Mr. DJ\
 $5 - Meccaheadz - Night Stool\
+$5 - Meccaheadz - Night School (Remixes)\
 $5 - Ben Liebrand - Move To The Big Band\
 $5 - B.A.S.P. - Boom Boom My Heart\
 $5 - Cevin Fisher - Love You Some more\
@@ -1851,7 +1857,7 @@ $5 - Patty - Ray of Light (Madonna Cover)\
 $10 - Donna - Everybody (Madonna Cover)\
 $5 - U96 - Love Sees No Colour(Bass Bumpers Remix)\
 $5 - Fresh System - Down Under\
-$5 - Steve Angelo vs Metallica / Crystal Waters - Metallica Is Dancing / Gypsy Woman (Bootleg Mix)\
+$10 - Steve Angelo vs Metallica / Crystal Waters - Metallica Is Dancing / Gypsy Woman (Bootleg Mix)\
 $5 - The Soundlovers - Abracadabra\
 $5 - Floorfilla - Italodancer\
 $5 - Energy 52 - Cafe Del Mar 2002 Remix\
@@ -2385,3 +2391,46 @@ $4 - Tom Neville - Just F**k\
 $3 - Ryan Murgatroyd Feat. Tasha Baxter - Funk Country\
 $5 - Horizon Feat. Debora Kool - Sweet Love\
 $5 - Armin van Buuren Feat. Nadia Ali - Who Is Watching\
+$3 - Maxcess - Party YTour Body\
+$20 - The Roc Project Feat. Tina Arena - Never\
+$10 - Daniel Bedingfield - Gotta Get Thru This (White Vinyl)\
+$5 - Prax Paris - Under The Shower\
+$40 - Lil' Jazz - Sound Of The City\
+$5 - Lil Steven - Move Your Body\
+$3 - Brent Laurence Feat. Angelique Patrice - All Nite\
+$3 - Nowhere Men - Music & The Sound\
+$5 - Drax & Scott Mac - Angel\
+$5 - Young MC - I Come Off\
+$5 - Riva featuring Dannii Minogue - Who Do You Love Now? (Stringer) (Future Breezes Remixes)\
+$3 - Inner City - (That Man) He's All Mine\
+$5 - Los Del Mar Featuring Topaz Liz - Ooh La La La\
+$5 - Madelyne - Beautiful Child (A Deeper Love)\
+$4 - Peakafeller - She's A Bitch\
+$5 - Temperance - Lost In Love\
+$5 - Temperance - Music Is My Life\
+$3 - Angel City Featuring Lara McAllen - Touch Me\
+$3 - Los Del Mar / Los Maestros C. - Kiss Kiss On A Saturday Night / La Bomba\
+$50 - ABBA - Voulez-Vous (Extended Dance Remix) (Blue Sparkle Vinyl 2012 Record Store Day)\
+$5 - DJ Aligator Project Featuring Dr. Alban - I Like To Move It\
+$3 - Michael Gray Pres. Hi Fashion Feat. Maria Lawson - Whatcha Gonna Do\
+$3 - Tish - (If You're Not In It For Love) I'm Outta Here\
+$3 - Dave Aude & Tall Paul - Common Ground\
+$5 - 20 Inches - Flat Chested Girl\
+$5 - Lost - Because You Loved Me (Red 10" Vinyl - Celine Dion Remix)\
+$5 - DJ Rooster & Sammy Peralta - Shake It\
+$3 - Laurent Pautrat - Kamasutra EP\
+$3 - Da Klubb Kings - It's Time 2 Get Funky\
+$3 - Kenny Blake - Tom's Diner 2000\
+$3 - Woody Bianchi - All Right\
+$3 - Amba - Favourite Song\
+$3 - The Sugarpill Gang - A Boot - Song\
+$20 - Queen Vs The Miami Project - Another One Bites The Dust (Clear Vinyl)\
+$3 - WAM - West Of Havana\
+$5 -Marc Et Claude - Loving You '03\
+$3 - Scanty - Get Next To The Opposite Sex\
+$5 - Safri Duo - Samb-Adagio (The Remixes)\
+$5 - Lady - Dance To The Music\
+$10 - Nick Skitz / Klubbhoppers / Playahitty - Mix EP\
+$3 - Park Slope - La-Dee-Da-Dee (We Like To Party)\
+$4 - Blakkat And Tyra (2) - Other Woman\
+$3 - Rockets / Brahama - Future Woman (Future Love)\
