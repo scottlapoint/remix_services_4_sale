@@ -1538,6 +1538,7 @@ $5 - Lil Mama Featuring Chris Brown And T-Pain – Shawty Get Loose (Dance Remix
 $10 - Lionel Richie – Just For You\
 $10 - LL Cool J - Mama Said Knock You out\
 $4 - Loft - Hold On\
+$5 - Los Del Mar - Kiss Kiss\
 $10 - Lost Witness - Home\
 $40 - Love & Laughter - I Surrender\
 $5 - Love Connection - The Bomb\
@@ -1786,6 +1787,7 @@ $10 - Vengaboys - We're Going To Ibiza\
 $5 - Waldos People - Drive Me Crazy\
 $5 - Underworld - Born Slippy Nuxx\
 $10 - Unique II - Break My Stride\
+$200 - Ultimate - You're The One\
 $3 - Whigfield - Another Day ((Bubble Gum Mix)
 $3 - Whigfield - Another Day\
 $3 - Whigfield - Baby Boy\
