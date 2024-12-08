@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Oct 20, 2024)
+Hello DJ World! - (Last updated Dec 8, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -1040,6 +1040,7 @@ $15 - Da Grooves\
 $15 - Dance Connection Vol. 1\
 $25 - Dance Classics - New Jack Swing Vol 1 (2xCD\
 $10 - Dancin Divas\
+$10 - Dxv6 - Dance XPress V6 Promo - Various Artists\
 $5 - Dance Hall Hits\
 $10 - Dance Pool 1\
 $10 - Dance Pool 2\
@@ -1113,8 +1114,8 @@ $20 - House Nation 1 (2xCD)\
 $20 - House Nation 2 (2xCD)\
 $30 - Italo Euro Hits 1 (Tony Monaco)\
 $30 - Italo Euro Hits 2 (Tony Monaco)\
-$10 - Last Night A DJ Saved My Life Vol 1 (Bootleg & Hard To Find Remixes Compilatioin)\
-$10 - Last Night A DJ Saved My Life Vol 2 (Bootleg & Hard To Find Remixes Compilatioin)\
+$25 - Last Night A DJ Saved My Life Vol 1 (Bootleg & Hard To Find Remixes Compilatioin)\
+$25 - Last Night A DJ Saved My Life Vol 2 (Bootleg & Hard To Find Remixes Compilatioin)\
 $5 - Living In Oblivion 1\
 $5 - Living In Oblivion 2\
 $5 - Living In Oblivion 3\
@@ -1155,6 +1156,7 @@ $5 - Strictly Rhythm - The Deadly Grooves\
 $10 - Strictly Rhythm (Collector's Edition) (2xCD)\
 $20 - Strictly Todd Terry (Unmixed DJ Format) (3xCD)\
 $5 - Try This '06 The Mix Tape\
+$3 - Sabrina The Teenage Witch - Various Artists\
 $10 - Suburbia Unmixed 26\
 $10 - This Beat Is Hot...The Compilation\
 $5 - The Best Dance Album Ever! (2xCD)\
@@ -1529,6 +1531,7 @@ $5 - Lara Fabian - I Will Love Again\
 $5 - Lauren Hildebrandt – Burnin Out\
 $10 - LeAnn Rimes – And It Feels Like / Strong - Remixes\
 $3 - Len – Steal My Sunshine\
+$10 - Los Del Mar - Kiss Kiss On A Saturday Night\
 $4 - Los Del Rio – Macarena (Bass Bumpers Remix)\
 $100 - Lia - Private Fantasy\
 $5 - Lidell Townsell - Nu Nu\
@@ -2032,7 +2035,9 @@ $5 - Pretty Poison - Catch Me I'm Falling\
 $5 - Eric Tenet - Love Don't Love Me\
 $5 - Eiffel 65 - Losing You\
 $5 - Dark Monks ft MIM - Insane\
-$5 - Patria - Good Love\
+$3 - Patria - Good Love\
+$3 - Dance Urban Groove - Black Factor\
+$3 - Blackstreet - Babt Be Mine\
 $5 - Felipe Inoa Patrone & Serebe Kironde - Silence\
 $5 - Jessy - Look At Me Now\
 $5 - Miami Dub Machine - Be Free With Your Love\
@@ -2246,6 +2251,7 @@ $5 - Antoine Clamaran - Keep On Tryin\
 $5 - Barbie Young - Dolly Girl\
 $5 - Da Fresh - Back 4 Ya\
 $5 - m@d - It's Name Is\
+$5 - m@d - It's Name Is\
 $5 - DJ Hugo Bass - 2 Da Top (Clear Vinyl)\
 $4 - Fast Eddie - Yo Yo Get Funky\
 $5 - Starecase - Faith\
@@ -2435,3 +2441,43 @@ $10 - Nick Skitz / Klubbhoppers / Playahitty - Mix EP\
 $3 - Park Slope - La-Dee-Da-Dee (We Like To Party)\
 $4 - Blakkat And Tyra (2) - Other Woman\
 $3 - Rockets / Brahama - Future Woman (Future Love)\
+$5 - Snap! - Power 1 (Bootleg Remix)\
+$4 - Froggy Mix - No Nagging\
+$5 - Double Dee - Shining\
+$5 - Hiver & Hammer - 5 Million Miles\
+$5 - Christina Aguilera - Aint No Other Man (Bootleg Remix)\
+$25 - Mastermind Featuring Mr. Roam from the Plant, Choclair & Citizen Kane - Bump / Monolith Interlude / Citizen Kane Interlude\
+$5 - Secret Service - I'm Coming Out\
+$3 - Phillip B - In De Ghetto\
+$5 - Global Deejays - Electrica Salsa\
+$5 - Starchaser - Love Will Set You Free\
+$5 - Jesse Garcia - Check It Out Bro\
+$3 - Maeva - Kiss Me Mon Amour\
+$3 - Cowboy JOhnny Christ - Let's Fuc\
+43 - Bizarre Shrink - Playing With Lives (BOOTLEG)\
+$5 - Klea - Tic Toc (Remixes)\
+$3 - The Party 2001 - Kraze\
+$5 - Wellenrausch - On The Run\
+$5 - Sebastian Ingrosso - Body Beat\
+$8 - Vanilla Ice - Ice Ice Baby 2001 (GiGi D'Agastino Remixes)\
+$50 - Emeralads - Do It For Love\
+$5 - Blaze Featuring Palmer Brown - My Beat (Remixes 2001)\
+$5 - Diana Fox - Running On Empty\
+$5 - Afro Medusa - Pasilda (Haji Emanuel Remix)\
+$10 - Nadia - Beatman\
+$3 - Weekend Players - I'll Be There (2002 Remixes)\
+$5 - Aquagen - Hard To Say I'm Sorry (Dance Nation Remixes)\
+$10 - Tiesto & Junkie XL - Obsession (Remixes)\
+$5 - Maria Lisa - Let It Hit Ya (Orange Vinyl)\
+$3 - G.U.M. - This Is Not A Lovesong\
+$5 - Martina - Coconut Dancing\
+$4 - Praetorian - Released\
+$3 - Brother John - I Know\
+$5 - Dirty Funker - This Is Dirty Funker\
+$10 - The KS - Living A Life\
+$5 - Gladiator - Now We Are Free (The Remixes)\
+$5 - Drax & Scott Mac - The Sun]\
+$5 - Oliver Moldan - Gonna Make You Sweat\
+$5 - Samtronix - Shake Shake Baby Love\
+$5 - David Bowie & Mick Jagger - Dancing In The Street \
+$4 - The True Party - Whazzup!\
