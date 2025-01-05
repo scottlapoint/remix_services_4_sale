@@ -929,6 +929,20 @@ $20 - A State of Trance Classics 12\
 $30 - A State of Trance Classics 13\
 $20 - A State of Trance Classics 14\
 
+-----------------------------------------------------------------------------------\
+HI-BIAS / WARNER DANCE DISC PROMO ($225 for the set)
+--------------------------------------------------------------------------------\
+$25 - Hi-Bias / Warner Dance Disc 1\
+$25 - Hi-Bias / Warner Dance Disc 2\
+$25 - Hi-Bias / Warner Dance Disc 3\
+$25 - Hi-Bias / Warner Dance Disc 4\
+$25 - Hi-Bias / Warner Dance Disc 5\
+$25 - Hi-Bias / Warner Dance Disc 6\
+$25 - Hi-Bias / Warner Dance Disc 7\
+$25 - Hi-Bias / Warner Dance Disc 8\
+$25 - Hi-Bias / Warner Dance Disc 9\
+$25 - Hi-Bias / Warner Dance Disc 10\
+$25 - Hi-Bias / Warner Dance Disc 11\
 
 -----------------------------------------------------------------------------------\
 CD ALBUMS\
