@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Dec 8, 2024)
+Hello DJ World! - (Last updated Jan 05, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -66,9 +66,6 @@ CD - $40 - DDR 46\
 CD - $30 - DDR 47\
 CD - $25 - DDR 48\
 
-12 - $25 - Issue 20 Twenty\
-
-
 DEM
 ----------------------------------------------------------------------------------
 12 - $10 - Volume 1 Issue 4\
@@ -89,7 +86,6 @@ CD - $25 -- Issue 8\
 
 WICKED MIX
 ----------------------------------------------------------------------------------
-12 - $15 - Issue 01\
 12 - $15 - Issue 04\
 12 - $15 - Issue 12\
 CD - $25 - Volume 13\
@@ -132,12 +128,12 @@ CD - $40 - Issue 14\
 
 
 
-ULTIMIX BACK SPINS ($40 for the lot)
+ULTIMIX BACK SPINS ($30 for the lot)
 ----------------------------------------------------------------------------------
-CD - $20 - Issue 1\
-CD - $20 - Issue 2\
-CD - $20 - Issue 3\
-CD - $20 - Issue 4\
+CD - $10 - Issue 1\
+CD - $10 - Issue 2\
+CD - $10 - Issue 3\
+CD - $10 - Issue 4\
 
 
 
@@ -499,8 +495,6 @@ CD - $30 - Rewind 80s\
 CLUB TRAX
 ----------------------------------------------------------------------------------
 12 - $15 - URBAN ISSUE 19 (2x12)\
-12 - $15 - URBAN ISSUE 22 (2x12)\
-
 
 
 X-MIX INTHEMIX
@@ -1160,6 +1154,7 @@ $3 - Sabrina The Teenage Witch - Various Artists\
 $10 - Suburbia Unmixed 26\
 $10 - This Beat Is Hot...The Compilation\
 $5 - The Best Dance Album Ever! (2xCD)\
+$10 - The Sound of Dance: 10th Anniversary Collection (2xCD)\
 $10 - The House Of Groove (Arista's Most Fierce Tracks)\
 $30 - The Politics Of Dancin\
 $15 - Trance Divas 1 (2xCD)\ 
@@ -2481,3 +2476,15 @@ $5 - Oliver Moldan - Gonna Make You Sweat\
 $5 - Samtronix - Shake Shake Baby Love\
 $5 - David Bowie & Mick Jagger - Dancing In The Street \
 $4 - The True Party - Whazzup!\
+$5 - Shannon - Let The Music Play (Fatt Bootleg Remix)\
+$5 - The L.A. Project ft Rozalla - All Or Nothing\
+$10 - Trisha Yearwood - You're Where I Belong (Soul Solution Remix)\
+$5 - Backstreet Boys - The One (Remixes)\
+$20 - Tony De Vit ft Niki Mak - Five Me A Reason / Bring The Beat Back (Picture Disc)\
+$3 - Double Nation - I'm Gonna Get You\
+$5 - Samantha Mumba - Always Come Back To Your Love (Remix)\
+$15 - The Greek Featuring Stephanie Vezina - Alive (2x12)\
+$4 - Alex Gaudino & Jerma - Reaction\
+$10 - Cassandra - Doobi Doobi Doo (Don't Be Shy)\
+$5 - Keshia Chanté - Shook Pt 2 (Bootleg)\
+$5 - The Crystal Method - You Know It's Hard (Remixes)\
