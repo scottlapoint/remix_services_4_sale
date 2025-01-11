@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Jan 05, 2024)
+Hello DJ World! - (Last updated Jan 09, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -2502,3 +2502,6 @@ $4 - Alex Gaudino & Jerma - Reaction\
 $10 - Cassandra - Doobi Doobi Doo (Don't Be Shy)\
 $5 - Keshia Chanté - Shook Pt 2 (Bootleg)\
 $5 - The Crystal Method - You Know It's Hard (Remixes)\
+$10 - Kansai - Remember This Night (Original Mix / Chill Out Mix)\
+$10 - Kansai - Remember This Night (Hemstock & Jennings Mix / Original Dub)\
+$5 - Culture Beat - Can't Go On Like This\
