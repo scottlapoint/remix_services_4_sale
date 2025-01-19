@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Jan 09, 2024)
+Hello DJ World! - (Last updated Jan 19, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -1831,7 +1831,7 @@ $8 - Nalin & Kane vs Denis The Menace - Beachball 2003  (2x12")\
 $3 - E.X.P. - Shake Your Body\
 $4 - Splash - Touch Me\
 $20 - Green Velvet - La La Land\
-$5  - $prezioso ft Marvin - Rock Da Discotech\
+$5  - Prezioso ft Marvin - Rock Da Discotech\
 $5 - Masterboy - Feel The Heat Of The Night 2003\
 $5 - JJ Brothers - Move It Up\
 $5 - Frame - Man In The moon\
@@ -2505,3 +2505,7 @@ $5 - The Crystal Method - You Know It's Hard (Remixes)\
 $10 - Kansai - Remember This Night (Original Mix / Chill Out Mix)\
 $10 - Kansai - Remember This Night (Hemstock & Jennings Mix / Original Dub)\
 $5 - Culture Beat - Can't Go On Like This\
+$5 - Bodyrox - Yeah Yeah\
+$10 - Ivan - Open Your Eyes\
+$5 - DJ Herbie - Triky\
+$3 - Crooklyn Clan - Dancefloor Delightz\
