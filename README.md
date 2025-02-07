@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Jan 19, 2024)
+Hello DJ World! - (Last updated Feb 07, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -2509,3 +2509,55 @@ $5 - Bodyrox - Yeah Yeah\
 $10 - Ivan - Open Your Eyes\
 $5 - DJ Herbie - Triky\
 $3 - Crooklyn Clan - Dancefloor Delightz\
+$5 - Hemstock & Jennings - The Passion\
+$10 - ETBG - Five Fathoms (Remixes)\
+$3 - R-Angels - Left To Right\
+$3 - Pyroclastic - Be My Lover
+$10 - Shaggy - Hey Sexy lady (Remixes) (green vinyl)\
+$10 - Craig Obey & The Elektrik Force - Hyp-ma-tize-me\
+$10 - The Soul Chip - Let's Rock (Picturedisc)\
+$10 - Paradise Soul - Wake Up Theme (Red Vinyl)\
+$20 - Jordan & Creamer & K Pres Dr T. - Last Night I Was Dreaming\
+$5 - House of Whores - Fuck Around\
+$5 - Global Deejays - Network EP\
+$5 - Jentina - French Kisses (Picturedisc)\
+$3 - Starling - Red Balloon\
+$3 - Future of Vision - Talk To Me\
+$5 - ATFC - Get Ya Rocks off\
+$3 - Bass Solution - (Party People) Pump It Up!\
+$3 - Kiez Kidz - Hootin 'N' Tootin\
+$3 - Silvercat - Taste My Pussy\
+$5 - Onyx - Right In The Night\
+$3 - Lorindo - Right Here Waiting\
+$5 - Tricknology - No. 9 (The Stefani Sessions)\
+$10 - Lenny Kravitz - Believe In Me (Shane 54's Pink Flood Mix)\
+$20 - My Prayer - Noel Sanger Feat. Dauby\
+$3 - Will Bailey - Patchin\
+$15- Tenth Planet - Walk On Water\
+$3 - Loader - Nothin Is\
+$10 - Dirty Funker - Street Science\
+$5 - Armand Van Helden - The Funk Phenomena 2K6\
+$10 - Britney Spears - Lucky (Remixes)\
+$3 - Florida Inc - Let Me Love You\
+$5 - Genius Cru / Orion - Boom Selection / See Me Here\
+$5 - Naked Souls - As Long As We're Together\
+$3 - Tonga - Let's Groove\
+$3 - Obersoundz - I Wanna Be With You\
+$3 - Digitasl Dog - Clothes Off\
+$3 - Sara Jorge - Beautiful World\
+$3 - Stargazer - Feel Good\
+$3 - Santek - Photograph\
+$5 - Jezebels Addiction Feat. Michelle Weeks - Believe In Love\
+$5 - Oliver Klitzing - I Like That Beat\
+$3 - Kevin Saunderson & Paris Grey Present Inner City - Pennies From Heaven (2006 Remixes)\
+$3 - Aerosoul - Sometimes\
+$3 - Kristal - A Day Under The Sun\
+$3 - James Mowbray & D. Ramirez - The Day Hip Hop Died\
+$3 - Armand Van Helden Feat Tekitha Present Sahara (2) - Everytime I Feel It (Dr Kucho ! Remix)\
+$5 - Michel AUTHORITY Simard - Just Can't Stop\
+$20 - Eric Prydz - Call On Me (Mode Hookerz Remix)\
+$5 - Greg Dorian / Bryan Cox - Da Pump / Freaks On The Floor\
+$5 - Radio Slave Remixes - Beyonce / Sean Paul / Black Eyed Peas / Aphex Twin vs REKID - Fighting Temptation / Get Busy / Boogie That Be / Twin Licka\
+$3 - Chriss Chapp – Dream On Black Girl\
+$5 - Patrice Rushen - Haven't You Heard (DJ Boobies Bootleg Remix)\
+
