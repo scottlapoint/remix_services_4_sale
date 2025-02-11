@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Feb 07, 2024)
+Hello DJ World! - (Last updated Feb 11, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -2560,4 +2560,14 @@ $5 - Greg Dorian / Bryan Cox - Da Pump / Freaks On The Floor\
 $5 - Radio Slave Remixes - Beyonce / Sean Paul / Black Eyed Peas / Aphex Twin vs REKID - Fighting Temptation / Get Busy / Boogie That Be / Twin Licka\
 $3 - Chriss Chapp – Dream On Black Girl\
 $5 - Patrice Rushen - Haven't You Heard (DJ Boobies Bootleg Remix)\
+$5 - DJ Tyson vs. Village People - YMCA\
+$3 - Roy The Boy - Ring My Bell\
+$5 - Steve - Hey Baby\
+$5 - Demon ft Mr Vegas - In The Park\
+$5 - Trancesetters - The Search (10" clear awua)\
+$5 - J.A.K. - I'nm Gonna Dis You (White 10")\
+$5 - IttyBitty, BoozyWoozy & Greatski* - Pumped Up Funk (10" Blue Vinyl)\
+$5 - The Recycle EP - Steve Blake / Hyperlogic (10" Yellow Vinyl)\
+$3 - Chriss Chapp - Dream On Black Girl\
+$5 - 33rd Ave - Savin My Lovin / Miss You\
 
