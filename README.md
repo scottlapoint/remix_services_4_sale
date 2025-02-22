@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Feb 15, 2024)
+Hello DJ World! - (Last updated Feb 22, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -1011,7 +1011,7 @@ $60 - Austrailian Club Breeakers Vol 7 (2xCD)\
 $40 - Austrailian Club Breeakers Vol 8 (3xCD)\
 $5 - Azuli Presents Miami 10 (Unmixed For DJ's Only)\
 $5 - bpm:tv Takin' It To The Streets\
-$40 -  Back Spins Volume One\
+$40 - Back Spins Volume One\
 $5 - Blanco Y Negro Hits 11-09\
 $5 - Blanco Y Negro Hits 11-10\
 $20 - BMG Dance Compilation 56\
@@ -1057,8 +1057,6 @@ $10 - Dance Pool 4\
 $5 - Dance World - Volume One - The Best Dance Music From Around The World\
 $5 - Dance N-R-G Vol. 2 (2xCD)\
 $5 - Dance Express 6 Unmixed Promo\
-$30 - D:Vision Club Session 37 - Miami 2014 (2xCD)
-$30 - D:Vision Club Session 38 (2xCD)\
 $25 - Dance Remakes - The Original Covers\
 $10 - Dance Revolution\
 $20 - Dee Jay's Choice Volume 1\
@@ -1082,6 +1080,46 @@ $10 - D:Vision DJ Club Hits 16\
 $10 - D:Vision DJ Club Hits 17\
 $10 - D:Vision DJ Club Hits 18\
 $10 - D:Vision DJ Club Hits 19\
+
+($500 for the Club Session lot)
+$25 - D:Vision Club Session 3 (2xCD)\
+$25 - D:Vision Club Session 4 (2xCD)\
+$25 - D:Vision Club Session 5 (2xCD)\
+$25 - D:Vision Club Session 6 (2xCD)\
+$25 - D:Vision Club Session 7 (2xCD)\
+$25 - D:Vision Club Session 8 (2xCD)\
+$25 - D:Vision Club Session 9 (2xCD)\
+$25 - D:Vision Club Session 10 (2xCD)\
+$25 - D:Vision Club Session 11 (2xCD)\
+$25 - D:Vision Club Session 12 (2xCD)\
+$25 - D:Vision Club Session 13 (2xCD)\
+$25 - D:Vision Club Session 14 (2xCD)\
+$25 - D:Vision Club Session 15 (2xCD)\
+$25 - D:Vision Club Session 16 (2xCD)\
+$25 - D:Vision Club Session 17 (3xCD)\
+$25 - D:Vision Club Session 18 (3xCD)\
+$25 - D:Vision Club Session 19 (3xCD)\
+$25 - D:Vision Club Session 20 (3xCD)\
+$25 - D:Vision Club Session 21 (3xCD)\
+$25 - D:Vision Club Session 22 (3xCD)\
+$25 - D:Vision Club Session 23 (3xCD)\
+$25 - D:Vision Club Session 24 (3xCD)\
+$25 - D:Vision Club Session 25 (3xCD)\
+$25 - D:Vision Club Session 26 (3xCD)\
+$25 - D:Vision Club Session 27 (3xCD)\
+$25 - D:Vision Club Session 28 (3xCD)\
+$25 - D:Vision Club Session 29 (3xCD)\
+$25 - D:Vision Club Session 30 (3xCD)\
+$25 - D:Vision Club Session 31 (3xCD)\
+$25 - D:Vision Club Session 32 (3xCD)\
+$25 - D:Vision Club Session 33 (2xCD)\
+$25 - D:Vision Club Session 34 (2xCD)\
+$25 - D:Vision Club Session 35 (2xCD)\
+$25 - D:Vision Club Session 36 (2xCD)\
+2 x $25 - D:Vision Club Session 37 - Miami 2014 (2xCD)\
+2 x $25 - D:Vision Club Session 38 (2xCD)\
+$25 - D:Vision Club Session 39 (Amsterdam Dance Event 2K14) (2xCD)\
+
 $25 - DJ Masters Unmixed 1 (3xCD)\
 $35 - DJ Masters Unmixed 2 (3xCD)\
 $35 - DJ Masters Unmixed 3 (3xCD)\
@@ -1111,9 +1149,11 @@ $5 -  Euro Dance Pool Volume 1\
 $5 -  Euro Dance Pool Volume 2\
 $10 - Eurotic Dance\
 $10 - Eurotic 2\
+$10 - Extended Remix 80's Attack Vol 2 (2xCD)\
 $15 - Fantastic 80s! Extended (2xCD)\
 $10 - French Electro (2xcd)\
 $10 - Fierce Angel - Fierce Disco II (3xCD)\
+$15 - It's All About House (3xCD)\
 $5 -  Hit 'N' Dance 1\
 $10 - Hed Kandi: Beach House 2010 (3xCD)\
 $20 - Hed Kandi: Disco Kandi (2xCD(\
@@ -1135,6 +1175,7 @@ $10 - Los Cuarenta Vol.2 Unmixed (2xCD)\
 $10 - Los Cuarenta Vol.3 Unmixed (2xCD)\
 $5 - Massive Dance Hits\
 $15 - Massive Hits! 80s Remix (3xCD)\
+$10 - no 1 Club Hits 2003 (2xCD)\
 $5 - Now That's What I Call Club Hits 2\
 $80 - Oh What A Feeling (A Vital Collection Of Canadian Music) Vol 1 (4xCD)\
 $20 - Oh What A Feeling (A Vital Collection Of Canadian Music) Vol 2 (4xCD)\
@@ -1189,7 +1230,6 @@ $5 - Victor Calderone - E=VC2\
 $10 -  Warehouse Grooves Volume 3 (2xCD)\
 $10 - Warner -  Dance Disc - Vol. 26\
 $10 - Xtended Xplicit\
-
 
 
 
@@ -2570,4 +2610,6 @@ $5 - IttyBitty, BoozyWoozy & Greatski* - Pumped Up Funk (10" Blue Vinyl)\
 $5 - The Recycle EP - Steve Blake / Hyperlogic (10" Yellow Vinyl)\
 $3 - Chriss Chapp - Dream On Black Girl\
 $5 - 33rd Ave - Savin My Lovin / Miss You\
-$- Nuscape - The End\
+$5 - Nuscape - The End\
+$5 - Choclatt / Shot Callas – The Deadly Kiss / Shot Callas Anthem\
+
