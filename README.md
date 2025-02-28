@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Feb 22, 2024)
+Hello DJ World! - (Last updated Feb 28, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -1206,7 +1206,39 @@ $10 - Strictly Rhythm (Collector's Edition) (2xCD)\
 $20 - Strictly Todd Terry (Unmixed DJ Format) (3xCD)\
 $5 - Try This '06 The Mix Tape\
 $3 - Sabrina The Teenage Witch - Various Artists\
-$10 - Suburbia Unmixed 26\
+$5 - Suburbia Unmixed 1 (2xCD)\
+$5 - Suburbia Unmixed 2 (2xCD)\
+$5 - Suburbia Unmixed 3 (2xCD)\
+$5 - Suburbia Unmixed 4 (2xCD)\
+$5 - Suburbia Unmixed 5 (2xCD)\
+$5 - Suburbia Unmixed 6 (2xCD)\
+$5 - Suburbia Unmixed 7 (2xCD)\
+$5 - Suburbia Unmixed 8 (2xCD)\
+$5 - Suburbia Unmixed 9 (2xCD)\
+$5 - Suburbia Unmixed 10 (2xCD)\
+$5 - Suburbia Unmixed 11 (2xCD)\
+$5 - Suburbia Unmixed 12 (2xCD)\
+$5 - Suburbia Unmixed 13 (2xCD)\
+$5 - Suburbia Unmixed 14 (2xCD)\
+$5 - Suburbia Unmixed 15 (2xCD)\
+$5 - Suburbia Unmixed 16 (2xCD)\
+$5 - Suburbia Unmixed 17 (2xCD)\
+$5 - Suburbia Unmixed 18 (2xCD)\
+$5 - Suburbia Unmixed 19 (2xCD)\
+$5 - Suburbia Unmixed 20 (2xCD)\
+$5 - Suburbia Unmixed 21 (2xCD)\
+$5 - Suburbia Unmixed 22 (2xCD)\
+$5 - Suburbia Unmixed 23 (2xCD)\
+$5 - Suburbia Unmixed 24 (2xCD)\
+$5 - Suburbia Unmixed 25 (2xCD)\
+$5 - Suburbia Unmixed 26 (2xCD)\
+$5 - Suburbia Unmixed 26 (2xCD)\
+$5 - Suburbia Unmixed 27 (2xCD)\
+$5 - Suburbia Unmixed 28 (2xCD)\
+$5 - Suburbia Unmixed 29 (2xCD)\
+$5 - Suburbia Unmixed 30 (2xCD)\
+$5 - Suburbia Unmixed 31 (2xCD)\
+$5 - Suburbia Unmixed 32 (2xCD)\
 $10 - This Beat Is Hot...The Compilation\
 $5 - The Best Dance Album Ever! (2xCD)\
 $10 - The Sound of Dance: 10th Anniversary Collection (2xCD)\
