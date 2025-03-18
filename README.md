@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Feb 28, 2024)
+Hello DJ World! - (Last updated Mar 18, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -988,6 +988,7 @@ $5 - Sarah McLachlan – Remixed\
 $3 - Salt N Pepa - A Blitz Of Salt-N-Pepa Hits: The Hits Remixed\
 $5 - Snap! – Snap! Attack - The Remixes\
 $5 - Sweet Sensation - Love Child\
+$20 - Top Kat – Presents Hi-Energy House\
 $10 - Tiësto – Kaleidoscope Remixed\
 $5 - The Corrs – Forgiven, Not Forgotten\
 $5 - The Corrs – Talk On Corners\
@@ -1552,6 +1553,7 @@ $25 - Jane Child - Don't Want To Fall Iin Love\
 $15 - Jane Child - Don't Want To Fall In Love\
 $5 - Jaydee - Plastic Dreams 97\
 $5 - Jenna Drey - Why Should I Believe You - The Remixes\
+$8 - Jentina - French Kisses\
 $5 - Jessica Simpson – This Is The Remix\
 $5 - Jet Fuel Featuring Rob Base & DJ E-Z Rock – Take This Party Higher\
 $5 - Jennifer - Da-dee-da\
