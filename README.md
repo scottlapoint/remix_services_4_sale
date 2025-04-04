@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Mar 18, 2024)
+Hello DJ World! - (Last updated Apr 04, 2024)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -2646,4 +2646,11 @@ $3 - Chriss Chapp - Dream On Black Girl\
 $5 - 33rd Ave - Savin My Lovin / Miss You\
 $5 - Nuscape - The End\
 $5 - Choclatt / Shot Callas – The Deadly Kiss / Shot Callas Anthem\
-
+$3 - Top Kat - Bendover\
+$3 - High Energy House EP 2\
+$5 - King Africa - Bailando Pump It Up 2000\
+$5 - Premier Featuring Marquise / Blackwood – Open Up Your Heart / All I Gave To You\
+$5 - Joee - Does That Make You Happy\
+$5 - Mike Flores - Guess Who?\
+$5 - Enjoy The Silence / Heart Of Glass - Depeche Mode / Blondie (Bootleg Remixes)\
+$20 - Katy Perry - Part Of Me (Jacques Lu Cont's Thin White Duke Mix) (Pink Vinyl)\
