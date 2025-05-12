@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated May 09, 2025)
+Hello DJ World! - (Last updated May 12, 2025)
 
 Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -65,17 +65,6 @@ CD - $40 - DDR 45\
 CD - $40 - DDR 46\
 CD - $30 - DDR 47\
 CD - $25 - DDR 48\
-
-DEM
-----------------------------------------------------------------------------------
-12 - $10 - Volume 1 Issue 4\
-
-
-DISC DRIVE
-----------------------------------------------------------------------------------
-12 - $15 -- 1.5 (2x12")\
-12 - $15 -- 1.6 (2x12")\
-
 
 MEGA-MIXX
 ----------------------------------------------------------------------------------
@@ -468,8 +457,6 @@ CD - $30 - Best of Rhythm Stick CD 03\
 CD - $40 - Best of Rhythm Stick CD 04\
 CD - $40 - Best of Rhythm Stick CD 05\
 CD - $40 - Best of Rhythm Stick CD 06\
-12 - $15 - Issue 2-8 (2x12")\
-12 - $5  - Issue 2-3 (Side A/B ONLY)\
 
 
 DIRECT HIT ($50 for the lot)
@@ -478,18 +465,6 @@ CD - $15 - Issue 1\
 CD - $15 - Issue 2\
 CD - $15 - Issue 3\
 CD - $30 - Rewind 80s\
-
-
-CLUB TRAX
-----------------------------------------------------------------------------------
-12 - $15 - URBAN ISSUE 19 (2x12)\
-
-
-X-MIX INTHEMIX
-----------------------------------------------------------------------------------
-12 - $5 - ISSUE 6\
-
-
 
 X-MIX LATIN X-PRESS ($20 for the lot)
 ----------------------------------------------------------------------------------
@@ -504,16 +479,6 @@ CD - $10 - VOLUME 15\
 
 X-MIX URBAN
 ----------------------------------------------------------------------------------
-12 - $5 - URBAN ISSUE 12\
-12 - $5 - URBAN ISSUE 19\
-12 - $5 - URBAN ISSUE 39\
-12 - $5 - URBAN ISSUE 42\
-12 - $5 - URBAN ISSUE 43\
-12 - $5 - URBAN ISSUE 44\
-12 - $5 - URBAN ISSUE 46\
-12 - $5 - URBAN ISSUE 47\
-12 - $5 - URBAN ISSUE 48\
-
 CD - $10 - URBAN ISSUE 130\
 
 
@@ -553,15 +518,10 @@ CD - $15 - Issue 11\
 
 X-MIX (DANCE SERIES) ($1250 for the lot)
 ----------------------------------------------------------------------------------
-12 - $10 - Issue 4\
-12 - $10 - Issue 5\
 CD - $25 - Issue 10/11\
-12 - $10 - Issue 14\
-12 - $10 - Issue 15\
 CD - $25 - Issue 14/15\
 CD - $10 - Issue 16\
 CD - $10 - Issue 21\
-12 - $10 - Issue 22 (2x12)\
 CD - $20 - Issue 22\
 CD - $20 - Issue 25\
 CD - $40 - Issue 26\
@@ -836,14 +796,9 @@ CD - $15 - Issue 79\
 CD - $25 - Issue 80\
 CD - $15 - Issue 83\
 
-
-OZZMIX
-----------------------------------------------------------------------------------
-12 - $10 - Issue 12\
 	
 MISC
 ----------------------------------------------------------------------------------
-12 - $20 - Amber - The Hits Remixed (3x12)\
 CD - $10 - R&B KUTS VOL 1\
 
 PROMO ONLY CANADA RHYTHM RADIO ($25 for the set)
