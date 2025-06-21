@@ -448,17 +448,6 @@ CD - $15 - Issue 199\
 CD - $10 - Issue 201\
 CD - $10 - Issue 202\
 
-
-
-RHYTHM STICK ($150 for the lot)
-----------------------------------------------------------------------------------
-CD - $30 - Best of Rhythm Stick CD 02\
-CD - $30 - Best of Rhythm Stick CD 03\
-CD - $40 - Best of Rhythm Stick CD 04\
-CD - $40 - Best of Rhythm Stick CD 05\
-CD - $40 - Best of Rhythm Stick CD 06\
-
-
 DIRECT HIT ($50 for the lot)
 ----------------------------------------------------------------------------------
 CD - $15 - Issue 1\
@@ -495,8 +484,6 @@ CD - $20 - Issue 1998\
 CD - $15 - Issue 1999\
 CD - $15 - Issue 2000\
 CD - $15 - Issue 2001\
-
-
 
 
 X-MIX HOUSE ANTHEMS ($20 for the lot)
