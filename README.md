@@ -1397,8 +1397,6 @@ $25 - Eddie Amador – House Music (Remixes)\
 $10 - Edun - Put Em Up\
 $3 - Eiffel 65 - Move Your Body\
 $5 - Eiffel 65 - Lucky\
-$200 - Emjay - Sound of My Heartbeat\
-$200 - Emjay - Flying To The Moon\
 $20 - Energy 52 - Cafe Del Mar (2003 mixes)\
 $4 - ErickE - The Beat Is Rockin\
 $5 - Erin McKeown - Cosmopolitans (Trifactor Remixes)\
