@@ -1,6 +1,8 @@
-Hello DJ World! - (Last updated May 12, 2025)
+Hello DJ World! - (Last updated Aug 19, 2025)
 
-Discogs Collection Link: https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
+** ALL VINYL HAS BEEN SOLD, ONLY CDS LEFT **
+
+Discogs Collection Link (the NON REMIX SERVICE ITEMS, MAXIS, AND CD COMPS): https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
 As a DJ of 35+ years, I have decided to get out of the business and am selling off my entire collection.
 Below are lists of my Remix Service CD and Vinyl available.  I went through Discogs and used the Average selling
@@ -68,15 +70,11 @@ CD - $25 - DDR 48\
 
 MEGA-MIXX
 ----------------------------------------------------------------------------------
-12 - $10 -- Issue 4 (2x12")\
-12 - $5 -- Issue 1 (SIDE C/D ONLY)\
 CD - $25 -- Issue 8\
 
 
 WICKED MIX
 ----------------------------------------------------------------------------------
-12 - $15 - Issue 04\
-12 - $15 - Issue 12\
 CD - $25 - Volume 13\
 
 
@@ -136,7 +134,6 @@ CD - $50 - Issue 36\
 CD - $50 - Issue 38\
 CD - $30 - Issue 39\
 CD - $30 - Issue 40\
-12 - $25 - Issue 41 (3x12")\
 CD - $30 - Issue 41\
 CD - $35 - Issue 42\
 CD - $35 - Issue 43\
@@ -149,7 +146,6 @@ CD - $50 - Issue 50 (2xCD)\
 CD - $30 - Issue 51\
 CD - $30 - Issue 52\
 CD - $30 - Issue 53\
-12 - $20 - Issue 53 (3x12")\
 CD - $30 - Issue 54\
 CD - $30 - Issue 55\
 CD - $30 - Issue 56\
