@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Aug 19, 2025)
+Hello DJ World! - (Last updated Nov 15, 2025)
 
 ** ALL VINYL HAS BEEN SOLD, ONLY CDS LEFT **
 
@@ -1217,7 +1217,6 @@ $5 - Ace Of Base - Living In Danger\
 $10 - Ace of Base - Wheel Of Fortune\
 $15 - Ace Of Base – Whenever You're Near Me (The Remixes)\
 $3 - Adrima - For Love\
-$20 - Aftershock - Original Sin\
 $5 - Age of Love - The Age Of Love\
 $75 - Alexia - Number One & Summer Is Crazy\
 $40 - Amy Winehouse – Rehab (remix)\
@@ -1225,7 +1224,6 @@ $10 - Ann Lee - Ring My bell (2xcd enhanced)\
 $10 - ATB – Don't Stop / 9PM Til I Come\
 $10 - ATB - Field Of Dreams\
 $5 - Axwell - Feel The Vibe\
-$25 - Alexia Phillips - You\
 $10 - Alice Deejay - Will I Ever\
 $3 - Alice Deejay - Celebrate Our Love\
 $5 - Alice Deejay - Better Off Alone\
@@ -1307,11 +1305,8 @@ $4 - Camille Jones vs. Fedde Le Grand – The Creeps\
 $3 - Candy Girls Feat. Sweet Pussy Pauline - Wham Bam\
 $10 - Candee Jay - If I Were You\
 $5 - Cathy Dennis – Just Another Dream\
-$10 - Caution Records - Multi Singles #5\
 $Carlos Morgan - We're Gonna Make It \
 $5 - Cartouche - Shame\
-$3 - Cascada – Everytime We Touch\
-$3 - Cascada – Everytime We Touch (2-4 Grooves Remix)\
 $60 - CeCe Peniston - Finally\
 $5 - Ce Ce Peniston – Lifetime To Love\
 $5 - Celine Dion* – My Heart Will Go On (Love Theme From 'Titanic') (Dance Mixes)\
@@ -1330,7 +1325,6 @@ $10 - Clivilles & Cole - Pride (In The Name Of Love)\
 $10 - Clubland – Hold On (Tighter To Love) (The Steve Silk Hurley Mixes)\
 $5 - CoCo - I Need A Miracle\
 $5 - Command3r Tom - Attention!\
-$50 - Common Sense - Live It Up\
 $10 - Collage – Hasta La Vista / Je M'envole Avec Toi\
 $5 - Corenell Vs The Lisa Marie Experience – Keep On Jumpin\
 $5 - Coolio - Fantastic Voyage\
@@ -1366,7 +1360,6 @@ $3 - Digital Rockers - Because I Love You\
 $3 - Disco Nation – Rock Da Jam\
 $5 - DJ's Inc. vs. Opus – Live Is Life 2000\
 $5 - DJ BoBo - Everybody\
-$5 - DJ BoBo - Freedom\
 $5 - DJ BoBo - Pray\
 $10 - DJ BoBo - There's A Party\
 $5 - DJ Company – Hey Everybody (Out Of Control)\
@@ -1376,7 +1369,6 @@ $3 - DJ Spin - Raise Em High\
 $10 - DJ Tiesto Featuring Nicola Hitchcock From Mandalay – In My Memory (Remixes)\
 $5 - Dominoo - Run Run Away (Great Big Sea Dance Version)\
 $10 - Destinys Child - Bootylicious\
-$15 - Diana Fox & Starsplash - Where Are You Now & Rainbow In The Sky\
 $20 - Donna Lori - Sweet Holiday\
 $5 - Donna Summer – I Will Go With You (Con Te Partiró)\
 $4 - Double You – Why (Let's Make It Christmas) / Megamix\
@@ -1460,8 +1452,6 @@ $5 - Inner City - Hallelujah 92\
 $3 - Interactive – Forever Young\
 $5 - James Brown – Can't Get Any Harder (C&C Remix)\
 $3 - JD & Mariah Carey - Sweetheart\
-$10 - J.K. - My Radio\
-$10 - J.K. – You & I / Beat It \
 $10 - J. Kristoff – Thunder\
 $5 - Jakatta Featuring Seal – My Vision\
 $5 - Janet Jackson - Escapade (House Mix)\
@@ -1483,9 +1473,6 @@ $10 - Jessie And The Toy Boys Featuring Yelawolf – Push It (The Remixes)\
 $10 - Jewel – Intuition\
 $10 - Jewel - Stand\
 $50 - Joan & John - Jungle\
-$7 - Jocelyn Enriquez – A Little Bit Of Ecstasy\
-$5 - Jocelyn Enriquez – Do You Miss Me (The Remixes)\
-$5 - Jocelyn Enriquez - Get Into The Rhythm\
 $5 - Jordy - Alison (C'Est Ma Copine a Moi!)\
 $5 - Jordy - Dur Dur D'etre Bebe!\
 $3 - Jump & Joy - Let's Roll (I dee It)\
@@ -1512,8 +1499,6 @@ $5 - KMC feat Dhany - I Feel So Fine\
 $5 - Kris Kross - Jump (Remixes)\
 $175 - Kylie - In Your Eyes\
 $3 - Kym Sims – Too Blind To See It\
-$5 - La Cream - Say Goodbye\
-$15 - La Cream - You\
 $15 - Lady GaGa - Just Dance (The Remixes)\
 $10 - Lady Sovereign Feat. Missy Elliott – Love Me Or Hate Me\
 $20 - Red Velvet – Lady Don't Cry\
@@ -1562,7 +1547,6 @@ $5 - Maestro Fresh-Wes – 416/905 (T.O. Party Anthem)\
 $5 - Max-A-Million - Everybody's Groovin\
 $5 - Maxx – Get-A-Way (Remixes Incl. General Base Remixes)\
 $5 - Maxx - No More (I Can't Stand It)\
-$10 - MC Mario Featuring Nancy Martinez – Not Guilty\
 $3 - Me & My – Dub-I-Dub\
 $10 - Meck ft Dino - Feels Like Home\
 $50 - Melanie Bender – You Just Want Sex\
@@ -1666,7 +1650,6 @@ $5 - Salt 'N' Pepa* – Push It (Again)\
 $3 - Salt 'N' Pepa - R U Ready\
 $5 - Salt 'N' Pepa - Start Me Up\
 $10 - Sam Mollison – Will You Love Me In The Morning\
-$10 - Sandy - Bad Boy\
 $3 - Santana – Maria Maria\
 $10 - Sarah McLachlan - Bloom-Remixed\
 $75 - Sarah McLachlan - World On Fire Mixes\
@@ -1732,7 +1715,6 @@ $5 - The Boomshakers - Boom Shake The Room (Dance Mix)\
 $3 - The Boomtang Boys – Squeeze Toy / Popcorn\
 $5 - The Engine Room - A Perfect Lie (Gabriel & Dresdenn Remix)\
 $5 - The Jackmasters - Love Can't Turn Around\
-$10 - The Kromozone Project - Take My Love\
 $5 - The Love Bite - Take Your Time\
 $5 - The Notorious B.I.G. Featuring Puff Daddy & Mase – Mo Money Mo Problems\
 $5 - The Offspring - Pretty Fly For A White Guy\
@@ -1770,10 +1752,8 @@ $5 - Vengaboys – Uncle John From Jamaica\
 $10 - Vengaboys - Up and Down\
 $5 - Vengaboys – We Like To Party! (The Vengabus)\
 $10 - Vengaboys - We're Going To Ibiza\
-$5 - Waldos People - Drive Me Crazy\
 $5 - Underworld - Born Slippy Nuxx\
 $10 - Unique II - Break My Stride\
-$200 - Ultimate - You're The One\
 $3 - Whigfield - Another Day ((Bubble Gum Mix)
 $3 - Whigfield - Another Day\
 $3 - Whigfield - Baby Boy\
