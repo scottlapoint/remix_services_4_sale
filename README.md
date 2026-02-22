@@ -1,6 +1,4 @@
-Hello DJ World! - (Last updated Nov 15, 2025)
-
-** ALL VINYL HAS BEEN SOLD, ONLY CDS LEFT **
+Hello DJ World! - (Last updated Feb 22, 2026)
 
 Discogs Collection Link (the NON REMIX SERVICE ITEMS, MAXIS, AND CD COMPS): https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -12,7 +10,7 @@ There are some rare early editions, so first come first serve, I don't hold item
 
 All prices are in US$ to keep it simple.  
 
-You can pay in either US$ or CDN$ -- paypal for US customers, and if you are in Canada you can either do Paypal OR Interac E-Transfer.
+You can pay in either US$ or CDN$ -- paypal for US customers, and if you are in Canada you can either do Interac E-Transfer.
 
 Obviously if you purchase more we can work something out.  I am in Canada and would prefer to ship out only to Canada 
 and US for now.  As most of you are aware shipping is not cheap these days, so I'll do my best to get the best rate available.
@@ -130,7 +128,6 @@ CD - $40 - Best of Ultimix 4 (2xCD)\
 
 
 CD - $50 - Issue 36\
-12 - $25 - Issue 37 (3x12")\
 CD - $50 - Issue 38\
 CD - $30 - Issue 39\
 CD - $30 - Issue 40\
@@ -800,7 +797,7 @@ CD - $10 - X-SERIES VOL 1\
 CD - $10 - X-SERIES VOL 2\
 CD - $10 - X-SERIES VOL 3\
 
-PROMO ONLY CANADA Mainstream Club Canada CD - $5 ea (or $1100 for the whole set) (273 CDS) 
+PROMO ONLY CANADA Mainstream Club Canada CD - $5 ea (or $1250 for the whole set) (300+ CDS) 
 ----------------------------------------------------------------------------------
 1992 - Jun / Jul / Aug / Sep\
 1993 - Jan / Feb / Apr / Jun / Jul / Oct\
@@ -827,7 +824,11 @@ PROMO ONLY CANADA Mainstream Club Canada CD - $5 ea (or $1100 for the whole set)
 2017 - Jan to Dec (12)\
 2018 - Jan to Dec (12)\
 2019 - Jan to Dec (12)\
-2020 - Jan to June (6)\
+2020 - Jan to Dec (12)\
+2021 - Jan to Dec (12)\
+2022 - Jan to Oct (10)\
+
+
 
 ERG DANCE CANADA - ($600 FOR THE SET OR $5 EA) (I would prefer to sell the whole set)\
 ----------------------------------------------------------------------------------\
