@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated Feb 22, 2026)
+Hello DJ World! - (Last updated May 15, 2026)
 
 Discogs Collection Link (the NON REMIX SERVICE ITEMS, MAXIS, AND CD COMPS): https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -94,16 +94,6 @@ CD - $15 -- Issue 6\
 CD - $15 -- Issue 7\
 
 
-
-
-DMC
-----------------------------------------------------------------------------------
-CD - $10 - Commercial Collection 294 (2xCD)\
-CD - $10 - Commercial Collection 297 (2xCD)\
-
-
-
-
 ULTIMIX LOOKING BACK ($75 for the lot)
 ----------------------------------------------------------------------------------
 CD - $40 - Issue 4\
@@ -111,14 +101,6 @@ CD - $40 - Issue 8\
 CD - $40 - Issue 14\
 
 
-
-
-ULTIMIX BACK SPINS ($30 for the lot)
-----------------------------------------------------------------------------------
-CD - $10 - Issue 1\
-CD - $10 - Issue 2\
-CD - $10 - Issue 3\
-CD - $10 - Issue 4\
 
 ULTIMIX ($1500 for the lot)
 ----------------------------------------------------------------------------------
@@ -448,21 +430,9 @@ CD - $15 - Issue 2\
 CD - $15 - Issue 3\
 CD - $30 - Rewind 80s\
 
-X-MIX LATIN X-PRESS ($20 for the lot)
-----------------------------------------------------------------------------------
-CD - $15 - VOLUME 1\
-CD - $15 - VOLUME 2\
-
-
-X-MIX CLUB CLASSICS
-----------------------------------------------------------------------------------
-CD - $10 - VOLUME 15\
-
-
 X-MIX URBAN
 ----------------------------------------------------------------------------------
 CD - $10 - URBAN ISSUE 130\
-
 
 X-MIX PROJECT "X" ($150 for the lot)
 ----------------------------------------------------------------------------------
@@ -702,33 +672,6 @@ ROADKILL ($10 for both)
 ----------------------------------------------------------------------------------
 CD - $10 - Issue 1.10\
 CD - $10 - Issue 2.15\
-
-
-SELECT MIX ($60 for the lot)
-----------------------------------------------------------------------------------
-CD - $5 - Essentials 1\
-CD - $5 - Essentials 3\
-CD - $5 - Essentials 9\
-CD - $5 - Essentials 12\
-CD - $5 - Essentials 15\
-CD - $5 - Essentials 19\
-CD - $5 - Essentials 27\
-CD - $5 - Essentials 29\
-CD - $5 - Essentials 32\
-CD - $5 - Essentials 38\
-CD - $5 - Essentials 39\
-
-CD - $5 - Old School 3\
-CD - $5 - Old School 7\
-CD - $5 - Rewind 1\
-CD - $5 - Rewind 3\
-
-
-STREET TRACKS ($40 for the lot)
-----------------------------------------------------------------------------------
-CD - $10 - Issue 32\
-CD - $25 - Best of Volume 1\
-CD - $25 - Best of Volume 2\
 
 
 HOT TRACKS & HOT TRACKS MAINSTREAM DANCE ($200 for the lot)
@@ -1078,8 +1021,6 @@ $5 -  Euro Dance Pool Volume 1\
 $5 -  Euro Dance Pool Volume 2\
 $10 - Eurotic Dance\
 $10 - Eurotic 2\
-$10 - Extended Remix 80's Attack Vol 2 (2xCD)\
-$15 - Fantastic 80s! Extended (2xCD)\
 $10 - French Electro (2xcd)\
 $10 - Fierce Angel - Fierce Disco II (3xCD)\
 $15 - It's All About House (3xCD)\
@@ -1102,8 +1043,6 @@ $10 - Los Cuarenta Vol.1 Unmixed (2xCD)\
 $10 - Los Cuarenta Vol.2 Unmixed (2xCD)\
 $10 - Los Cuarenta Vol.2 Unmixed (2xCD)\
 $10 - Los Cuarenta Vol.3 Unmixed (2xCD)\
-$5 - Massive Dance Hits\
-$15 - Massive Hits! 80s Remix (3xCD)\
 $10 - no 1 Club Hits 2003 (2xCD)\
 $5 - Now That's What I Call Club Hits 2\
 $80 - Oh What A Feeling (A Vital Collection Of Canadian Music) Vol 1 (4xCD)\
@@ -1112,8 +1051,6 @@ $60 - Oh What A Feeling (A Vital Collection Of Canadian Music) Vol 3 (4xCD)\
 $25 - Old School Nation 1 (2xCD)\
 $25 - Old School Nation 2 (2xCD)\
 $25 - Old School Nation 3 (2xCD)\
-$15 - Old School Jams 3 (2xCD)\
-$15 - Old School Jams 6 (2xCD)\
 $5 - Party Mix\
 $10 - Pure Energy\
 $30 - Popular Canada Winter Music Sampler 1998\
@@ -1127,7 +1064,6 @@ $15 - Rhythm Formula Anthems\
 $15 - Rhythm Formula Vol III - Discovery
 $10 - Rhythm Formula Vol Four - Essentials
 $25 - Rhythm Formula Vol. Five - Absolute\
-$5 - Singles - #1 Club Remixes\
 $20 - Sounds Of The City - Manchester\
 $5 - Strictly Rhythm - Deadly Grooves - Strictly The Best\
 $5 - Strictly Rhythm - The Deadly Grooves\
