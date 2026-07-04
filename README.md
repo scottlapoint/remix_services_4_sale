@@ -1,4 +1,4 @@
-Hello DJ World! - (Last updated May 15, 2026)
+Hello DJ World! - (Last updated July 4, 2026)
 
 Discogs Collection Link (the NON REMIX SERVICE ITEMS, MAXIS, AND CD COMPS): https://www.discogs.com/user/scottfrost/collection?layout=med (most of the below are listed here accept some of the remix services, you can find track listings from www.remixservices.com )
 
@@ -661,12 +661,6 @@ CD - $10 - Issue 1\
 CD - $10 - Issue 2\
 CD - $10 - Issue 3\
 CD - $10 - Issue 4\
-CD - $10 - Issue 5\
-CD - $10 - Issue 6\
-CD - $10 - Issue 7\
-CD - $10 - Issue 8\
-CD - $10 - Issue 9\
-
 
 ROADKILL ($10 for both)
 ----------------------------------------------------------------------------------
@@ -700,7 +694,6 @@ CD - $10 - Issue 21-4 \
 CD - $10 - Issue 21-9 \
 CD - $10 - Issue 22-2\
 CD - $10 - Issue 23-2\
-CD - $20 - Issue 28-2 Special 200th Issue (Select Mix Hot Tracks)\
 
 HOT TRACKS XL
 ----------------------------------------------------------------------------------
