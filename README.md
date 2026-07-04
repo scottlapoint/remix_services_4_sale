@@ -240,8 +240,8 @@ CD - $10 - Issue 184\
 CD - $10 - Issue 185\
 CD - $10 - Issue 186\
 CD - $10 - Issue 187\
-CD - $10 - Issue 188\
 CD - $10 - Issue 189\
+CD - $10 - Issue 188\
 CD - $10 - Issue 190\
 CD - $10 - Issue 191\
 CD - $10 - Issue 192\
@@ -1429,6 +1429,7 @@ $5 - KMC feat Dhany - I Feel So Fine\
 $5 - Kris Kross - Jump (Remixes)\
 $175 - Kylie - In Your Eyes\
 $3 - Kym Sims – Too Blind To See It\
+$15 - Laurell - For Your Love\
 $15 - Lady GaGa - Just Dance (The Remixes)\
 $10 - Lady Sovereign Feat. Missy Elliott – Love Me Or Hate Me\
 $20 - Red Velvet – Lady Don't Cry\
